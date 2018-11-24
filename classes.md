@@ -1,10 +1,9 @@
 ---
 layout: page
 title: Classes
-permalink: Classes
+permalink: "/classes"
+
 ---
-
-
 # A Place To Sit: Make a Bench
 
     Date: Sunday, November 18th, 10:00 – 5:00
