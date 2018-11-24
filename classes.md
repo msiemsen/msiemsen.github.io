@@ -33,7 +33,7 @@ We will be learning to build a bench that is held together with wooden pegs, no 
 * rasp
 * Bring what tools you have, I have some I can loan you if you don't have them.
 
-## Build a Small Sea Chest.
+## Build a Small Sea Chest
 
 ![](/uploads/Small sea chest.jpg.jpg)
 
