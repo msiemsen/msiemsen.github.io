@@ -1,10 +1,9 @@
 ---
 layout: page
 title: About
-permalink: /about/
+permalink: "/"
+
 ---
-
-
 # Hand tool shop classes
 
 Registration for all classes is now open. Sign up now to ensure yourself a place.
