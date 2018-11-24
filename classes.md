@@ -6,6 +6,8 @@ permalink: "/classes"
 ---
 ## A Place To Sit: Make a Bench
 
+![](/uploads/craftsybench.jpg)
+
 * Date: Sunday, November 18th, 10:00 – 5:00
 * Cost: $150
 * Materials: included
@@ -118,9 +120,11 @@ We will be making a "Moxon" double screw vise,also a mallet, a marking gauge, an
 Getting your tools sharp is possibly the most important skill a woodworker can learn. Sharpening should be a quick and easy task. Mike will show you what it takes to obtain and maintain a good sharp edge. We will discuss various sharpening systems as well as different bevel angles and why they are used. You will also get ideas for setting up a sharpening station in your shop. Our goal is for you to achieve the 5 minute edge, the time it takes to remove and sharpen a plane iron, replace it, and get back to work. You will also learn what it takes to make a plane work properly, whether you are flattening a board and removing lots of material, jointing an edge, or smoothing for a finished surface. We will discuss when an iron needs camber and when an iron should be straight, and the nuances in between. You will learn what to look for in a plane, and what to avoid and how to correct deficiencies in your planes. We will flatten plane soles, adjust frogs and make your planes sing! On Sunday we will put our properly sharpened and tuned planes to work. You will learn to joint an edge and flatten a board. Mike will demonstrate work holding techniques to make your planing simple and accurate. We will try out specialty planes for cutting grooves,dados and moldings, try them out, understand how they work. Learn to use winding sticks to flatten boards, make glue joints and use a shooting board to trim end grain.
 
 **Tools**
+
 * Bring your planes and chisels and scrapers to work on and your sharpening stones for assessment. I will have sharpening stations set up for your use.
 
 ## MWTCA tool meet in Medina, MN
+
 * Date: Sunday, February 10th, 7:30 to 12:00 noon
 * Where: Medina Entertainment Center, 500 Highway 55,      Medina, MN 55340
 * Cost: You must be a member. They waive the $16 entry      fee when you join at the door for $25.This includes coffee donuts and      lunch. There are 3 meets a year.
@@ -149,6 +153,7 @@ Bring a 10 to 6 point saw that needs to be sharpened and a saw vise if you have 
 ## Lie- Nielsen Hand Tool Event, St. Cloud, MN
 
 ### Event Description
+
 * Free
 * Date: March 15-16, 2019. Friday (10am - 6pm), Saturday (10am - 5pm)
 
@@ -208,18 +213,19 @@ We will be building a small "Sea Chest" with angled sides. The finished chest wi
 * Marking gauge
 * Bevel
 
-## Holtzapfel Style Workbench    
+## Holtzapfel Style Workbench
 
 * Date: 6 days, April 24th - 29th, 8:30 to 4:30
-* Cost: $650    
-* Materials: Approximately $250 in Materials           
+* Cost: $650
+* Materials: Approximately $250 in Materials
 * Skill Level: Intermediate/all
 
 ### Course Description
 
-The work bench is the main work holding device in a wood shop. We will build a good, solid, simple, functional work bench for your shop that disassembles easily for moving. Mike's 16" jointer and 24" planer will help make quick work out of flattening the 2½" thick tops. We will cover some workbench appliances like the holdfast, the doe’s foot, the sliding deadman and the bench hook.  To simplify things Mike will order in enough lumber for all the benches so they will be the same. The hardwood lumber used will be purchased to get the best price and provided at cost plus machining fees. The bench will be 5 feet 6 inches long and 24 inches wide. The height will vary depending on your needs. Let Mike know how long of a bench you wish to build if you would prefer a different length. 
+The work bench is the main work holding device in a wood shop. We will build a good, solid, simple, functional work bench for your shop that disassembles easily for moving. Mike's 16" jointer and 24" planer will help make quick work out of flattening the 2½" thick tops. We will cover some workbench appliances like the holdfast, the doe’s foot, the sliding deadman and the bench hook.  To simplify things Mike will order in enough lumber for all the benches so they will be the same. The hardwood lumber used will be purchased to get the best price and provided at cost plus machining fees. The bench will be 5 feet 6 inches long and 24 inches wide. The height will vary depending on your needs. Let Mike know how long of a bench you wish to build if you would prefer a different length.
 
 **Tools**
+
 * chisels
 * mallet for chisels
 * smoothing plane
@@ -240,7 +246,6 @@ The work bench is the main work holding device in a wood shop. We will build a g
 * Date: December 1st and 2nd, Saturday, 9:00 – 5:00, Sunday 10:00 to 4:30.
 * Cost: $220
 * Materials: Included
-
 * Skill Level: Intermediate
 * [e-mail](http://schoolofwood.com/contact)
 
@@ -249,4 +254,5 @@ The work bench is the main work holding device in a wood shop. We will build a g
 Turning is a great hobby and a useful skill for making furniture elements like legs or columns. Craft items like pizza cutters and bottle stoppers are another option for the spindle turner.
 
 **Tools**
+
 * Bring whatever turning tools you may have
