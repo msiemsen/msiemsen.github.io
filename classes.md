@@ -245,7 +245,7 @@ The work bench is the main work holding device in a wood shop. We will build a g
 
 ## Introduction to Wood Turning
 
-* Date: December 1st and 2nd, Saturday, 9:00 – 5:00, Sunday 10:00 to 4:30.
+* Date: May 18th and 19th, Saturday, 9:00 – 5:00, Sunday 10:00 to 4:30.
 * Cost: $220
 * Materials: Included
 * Skill Level: Intermediate
