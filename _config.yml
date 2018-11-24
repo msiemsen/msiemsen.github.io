@@ -23,7 +23,8 @@ url: "http://schoolofwood.com/"
 
 # Build settings
 markdown: kramdown
-theme: jekyll-theme-slate
+theme: minima
+remote_theme: msiemsen/minima
 plugins:
   - jekyll-feed
 
