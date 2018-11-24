@@ -35,6 +35,8 @@ We will be learning to build a bench that is held together with wooden pegs, no 
 
 ## Build a Small Sea Chest.
 
+![](/uploads/Small sea chest.jpg.jpg)
+
 * Date:December 1st and 2nd, Saturday, 9:00 – 5:00, Sunday 10:00 to 4:30
 * Cost: $220
 * Materials: Included
