@@ -62,6 +62,8 @@ We will be building a small „Sea Chest“ with angled sides. The finished ches
 
 ## Just Joints: Handcut Joinery
 
+![](/uploads/dovetailing.jpg)
+
 * Date: January 12th and 13th, Saturday, 9:00 - 5:00, Sunday, 10:00 to 4:30
 * Cost: $260
 * Materials: Included
@@ -84,6 +86,8 @@ On the first day we will learn to lay out and cut several basic woodworking join
 * Smooth Plane
 
 ## Tool Making: make a Marking Gauge, Mallet, Vise and Layout Knife
+
+![](/uploads/tool making.JPG)
 
 **To be held at Paramount Center for the Arts in St. Cloud**
 
@@ -108,6 +112,8 @@ We will be making a "Moxon" double screw vise,also a mallet, a marking gauge, an
 * card scraper
 
 ## Sharpening, Tuning and Using Chisels, Planes and Scrapers
+
+![](/uploads/planesandchisels.JPG)
 
 * Date: February 2nd and 3rd, Saturday, 9:00 - 5:00, Sunday 10:00 to 4:30
 * Cost: $265
@@ -136,6 +142,8 @@ Getting your tools sharp is possibly the most important skill a woodworker can l
 
 ## Sharpening and Using Handsaws: Sharpen a Handsaw (and an auger bit!)
 
+![](/uploads/sawsharpening.JPG)
+
 * Date: Sunday February 24th, 10:00 to 5:00
 * Cost: $125
 * Materials: included
@@ -156,14 +164,16 @@ Bring a 10 to 6 point saw that needs to be sharpened and a saw vise if you have 
 
 ### Event Description
 
+See demonstrations, try out and purchase Lie-Nielsen planes. Visit with other woodworkers.
+
 * Free
 * Date: March 15-16, 2019. Friday (10am - 6pm), Saturday (10am - 5pm)
 
 Mike will be demonstrating at the hand tool event sponsored by the Central Minnesota Woodworkers Association at the Paramount Tech Center [1609 33rd Ave S, Waite Park, Minnesota](https://www.google.com/maps/place/1609+33rd+Ave+S,+Waite+Park,+MN+56387/@45.5506811,-94.2584814,17z/data=!4m16!1m10!4m9!1m3!2m2!1d-94.2509104!2d45.5535347!1m3!2m2!1d-94.2614194!2d45.5483881!3e0!3m4!1s0x52b458dd03674ecb:0x4db5ae732e5b36e6!8m2!3d45.5483881!4d-94.2614382).
 
-See demonstrations, try out and purchase Lie-Nielsen planes. Visit with other woodworkers.
-
 ## A Place To Sit: Make a Bench
+
+![](/uploads/craftsyme.jpg)
 
 * Date: Sunday, March 23rd, 10:00 - 5:00
 * Cost: $150
@@ -192,6 +202,8 @@ We will be learning to build a bench that is held together with wooden pegs, no 
 
 ## Build a Small Sea Chest
 
+![](/uploads/Small sea chest.jpg.jpg)
+
 * Date: March 13th and 14th, Saturday, 9:00 – 5:00, Sunday 10:00 to 4:30
 * Cost: $220
 * Materials: Included
@@ -216,6 +228,8 @@ We will be building a small "Sea Chest" with angled sides. The finished chest wi
 * Bevel
 
 ## Holtzapfel Style Workbench
+
+![](/uploads/bluevise.jpg)
 
 * Date: 6 days, April 24th - 29th, 8:30 to 4:30
 * Cost: $650
