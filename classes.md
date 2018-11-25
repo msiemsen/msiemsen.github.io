@@ -6,7 +6,7 @@ permalink: "/classes"
 ---
 ## A Place To Sit: Make a Bench
 
-![](/uploads/craftsybench.jpg)
+![](/uploads/craftsyme.jpg)
 
 * Date: Sunday, November 18th, 10:00 – 5:00
 * Cost: $150
