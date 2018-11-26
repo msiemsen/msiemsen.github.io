@@ -2,6 +2,7 @@
 layout: page
 title: Classes
 permalink: "/classes"
+published: false
 
 ---
 ## A Place To Sit: Make a Bench
