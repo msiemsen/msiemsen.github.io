@@ -204,7 +204,7 @@ We will be learning to build a bench that is held together with wooden pegs, no 
 
 ![](/uploads/Small sea chest.jpg.jpg)
 
-* Date: March 13th and 14th, Saturday, 9:00 – 5:00, Sunday 10:00 to 4:30
+* Date: April 13th and 14th, Saturday, 9:00 – 5:00, Sunday 10:00 to 4:30
 * Cost: $220
 * Materials: Included
 * Skill Level: Intermediate
