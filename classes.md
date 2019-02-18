@@ -240,6 +240,12 @@ We will be building a small "Sea Chest" with angled sides. The finished chest wi
 
 The work bench is the main work holding device in a wood shop. We will build a good, solid, simple, functional work bench for your shop that disassembles easily for moving. Mike's 16" jointer and 24" planer will help make quick work out of flattening the 2½" thick tops. We will cover some workbench appliances like the holdfast, the doe’s foot, the sliding deadman and the bench hook.  To simplify things Mike will order in enough lumber for all the benches so they will be the same. The hardwood lumber used will be purchased to get the best price and provided at cost plus machining fees. The bench will be 5 feet 6 inches long and 24 inches wide. The height will vary depending on your needs. Let Mike know how long of a bench you wish to build if you would prefer a different length.
 
+Don't have time to make a bench or don't want to?
+
+#### Buy a bench outright:  $1200 
+
+add 6 inches to the length $50 each 6 inches to 8 feet.
+
 **Tools**
 
 * chisels
