@@ -242,7 +242,7 @@ The work bench is the main work holding device in a wood shop. We will build a g
 
 Don't have time to make a bench or don't want to?
 
-#### Buy a bench outright:  $1200 
+#### Buy a bench outright:  $1200
 
 add 6 inches to the length $50 each 6 inches to 8 feet.
 
@@ -265,7 +265,7 @@ add 6 inches to the length $50 each 6 inches to 8 feet.
 
 ## Introduction to Wood Turning
 
-* Date: May 18th and 19th, Saturday, 9:00 – 5:00, Sunday 10:00 to 4:30.
+* Date: May 11th and 12th, Saturday, 9:00 – 5:00, Sunday 10:00 to 4:30.
 * Cost: $220
 * Materials: Included
 * Skill Level: Intermediate
@@ -278,3 +278,12 @@ Turning is a great hobby and a useful skill for making furniture elements like l
 **Tools**
 
 * Bring whatever turning tools you may have
+
+## MWTCA tool meet in Hastings, MN
+
+* Date: Saturday, May 18th, 7:30 to 12:00 noon
+* Where: Hastings National Guard Armory
+* Cost: You must be a member. They waive the $16 entry fee when you join at the door for $25.This includes coffee donuts and lunch. There are 3 meets a year.
+* Description: MWTCA tool meets are a great place to shop  for tools and visit with likeminded people. I will be there demonstrating. Bring a few tools to sell, buy tools, view tool displays, see demonstrations. Trading starts at 8:30.
+
+[https://mwtca.org/](https://mwtca.org/ "https://mwtca.org/")
