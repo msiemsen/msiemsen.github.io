@@ -4,12 +4,11 @@ title: Classes
 permalink: "/classes"
 
 ---
-
-## Sharpening, Tuning and Using Chisels, Planes and Scrapers
+## Sharpening and Tuning Chisels, Planes and Scrapers
 
 ![](/uploads/planesandchisels.JPG)
 
-* Date:  Saturday June 29, 9:00 - 5:00, 
+* Date:  Saturday June 29, 9:00 - 5:00,
 * Cost: $130. Combine with the handsaw class and save $20! $240 for both classes.
 * Materials: Included
 * Skill Level: All
@@ -19,7 +18,7 @@ permalink: "/classes"
 
 ### Course Description
 
-Getting your tools sharp is possibly the most important skill a woodworker can learn. Sharpening should be a quick and easy task. Mike will show you what it takes to obtain and maintain a good sharp edge. We will discuss various sharpening systems as well as different bevel angles and why they are used. You will also get ideas for setting up a sharpening station in your shop. Our goal is for you to achieve the 5 minute edge, the time it takes to remove and sharpen a plane iron, replace it, and get back to work. You will also learn what it takes to make a plane work properly, whether you are flattening a board and removing lots of material, jointing an edge, or smoothing for a finished surface. We will discuss when an iron needs camber and when an iron should be straight, and the nuances in between. You will learn what to look for in a plane, and what to avoid and how to correct deficiencies in your planes. We will flatten plane soles, adjust frogs and make your planes sing! On Sunday we will put our properly sharpened and tuned planes to work. You will learn to joint an edge and flatten a board. Mike will demonstrate work holding techniques to make your planing simple and accurate. We will try out specialty planes for cutting grooves,dados and moldings, try them out, understand how they work. Learn to use winding sticks to flatten boards, make glue joints and use a shooting board to trim end grain.
+Getting your tools sharp is possibly the most important skill a woodworker can learn. Sharpening should be a quick and easy task. Mike will show you what it takes to obtain and maintain a good sharp edge. We will discuss various sharpening systems as well as different bevel angles and why they are used. You will also get ideas for setting up a sharpening station in your shop. Our goal is for you to achieve the 5 minute edge, the time it takes to remove and sharpen a plane iron, replace it, and get back to work. You will also learn what it takes to make a plane work properly, whether you are flattening a board and removing lots of material, jointing an edge, or smoothing for a finished surface. We will discuss when an iron needs camber and when an iron should be straight, and the nuances in between. You will learn what to look for in a plane, and what to avoid and how to correct deficiencies in your planes. We will flatten plane soles, adjust frogs and make your planes sing!
 
 **Tools**
 
