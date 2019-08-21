@@ -8,13 +8,13 @@ permalink: "/classes"
 
 ### Course Description
 
-[C:\\Users\\msiemsen\\MSSW\\uploads](C:\\Users\\msiemsen\\MSSW\\uploads "C:\Users\msiemsen\MSSW\uploads")
+![](/uploads/morris chair.png)
 
-We will be building a reclining Arts and Crafts style Morris chair. We will use a combination of hand and power tools to build this iconic furniture form from quartersawn oak. When our chairs are finished we will set up a session with Cynthia at Funky Little Chair To make the upholstery.
+We will be building a reclining Arts and Crafts style Morris chair. We will use a combination of hand and power tools to build this iconic furniture form from quarter sawn oak. When our chairs are finished we will set up a session with Cynthia at Funky Little Chair To do the upholstery.
 
 * Date: 3 weekends. October 26th and 27th, November 2nd and 3rd and November 9th and 10th. 9:00 to 5:00
-* Cost: $780. plus materials 
-* Materials: TBD around $100
+* Cost: $780. plus materials
+* Materials: TBD around $100, does not include upholstery.
 * Skill Level: Intermediate
 * [e-mail](http://schoolofwood.com/contact)
 
@@ -68,7 +68,7 @@ Bring a 10 to 6 point saw that needs to be sharpened and a saw vise if you have 
 
 **Course Description**
 
-On the first day we will learn to lay out and cut several basic woodworking joints. We will cut mortise and tenon and bridle joints. Learning to saw straight, cut to the line and chop and pare with a chisel to your mark. Working our way up to dovetails on day two. We will also cover wood movement and why joints are made the way they are. 
+On the first day we will learn to lay out and cut several basic woodworking joints. We will cut mortise and tenon and bridle joints. Learning to saw straight, cut to the line and chop and pare with a chisel to your mark. Working our way up to dovetails on day two. We will also cover wood movement and why joints are made the way they are.
 
 Whether for drawers or case work dovetails are actually pretty basic woodworking. At first it can be a bit difficult to keep it all straight. Pins first? Tails first? What's a pin or tail? Which piece is the waste? What's a half pin? How do you keep the pieces organized? It will all become clear as you learn to layout, saw and chop this signature woodworking joint. We will do through and half-blind joints, then make a box! Bring the tools you have. I have some I can loan you.
 
@@ -97,7 +97,7 @@ Materials: Included
 
 ###### We will be turning spindles and Saturday and bowls on Sunday. We will cover sharpening, wood selection and tool selection and usage.
 
-######  Turning is a great hobby and a useful skill for making furniture elements like legs or columns. Craft items like pizza cutters and bottle stoppers are another option for the spindle turner. 
+###### Turning is a great hobby and a useful skill for making furniture elements like legs or columns. Craft items like pizza cutters and bottle stoppers are another option for the spindle turner.
 
 **Tools**
 
@@ -105,7 +105,7 @@ Materials: Included
 
 ## Build a Small Sea Chest. At the Paramount in St. Cloud MN
 
-* Date: January 18th and 19th, 
+* Date: January 18th and 19th,
 * Cost: $220
 * Materials: Included
 * Skill Level: Intermediate
