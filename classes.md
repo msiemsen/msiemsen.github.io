@@ -4,6 +4,20 @@ title: Classes
 permalink: "/classes"
 
 ---
+## Morris Chair
+
+### Course Description
+
+[C:\\Users\\msiemsen\\MSSW\\uploads](C:\\Users\\msiemsen\\MSSW\\uploads "C:\Users\msiemsen\MSSW\uploads")
+
+We will be building a reclining Arts and Crafts style Morris chair. We will use a combination of hand and power tools to build this iconic furniture form from quartersawn oak. When our chairs are finished we will set up a session with Cynthia at Funky Little Chair To make the upholstery.
+
+* Date: 3 weekends. October 26th and 27th, November 2nd and 3rd and November 9th and 10th. 9:00 to 5:00
+* Cost: $780. plus materials 
+* Materials: TBD around $100
+* Skill Level: Intermediate
+* [e-mail](http://schoolofwood.com/contact)
+
 ## Sharpening and Tuning Chisels, Planes and Scrapers
 
 ![](/uploads/planesandchisels.JPG)
@@ -44,7 +58,7 @@ Most people have never used a properly sharpened handsaw so they don't realize h
 
 Bring a 10 to 6 point saw that needs to be sharpened and a saw vise if you have one, an 8 point saw is best. If you don't have a saw you want to practice on Mike has some practice saws. You can bring extra saws for evaluation. Many students bring an 8 point crosscut saw and a 5 or 5 1/2 point ripsaw and sharpen them both!
 
-**Just Joints: Handcut Joinery**
+## Just Joints: Handcut Joinery
 
 * Date: December 7th and 8th, Saturday, 9:00 – 5:00, Sunday, 10:00 to 4:30
 * Cost: $260
@@ -68,3 +82,49 @@ Whether for drawers or case work dovetails are actually pretty basic woodworking
 * Marking Knife
 * 6" Square
 * Smooth Plane
+
+## Introduction to Wood Turning
+
+* Date: January 4th and 5th, Saturday, 9:00 – 5:00, Sunday 10:00 to 4:30
+* Cost: $220
+
+Materials: Included
+
+* Skill Level: Intermediate
+* [e-mail](http://schoolofwood.com/contact)
+
+#### Course Description
+
+###### We will be turning spindles and Saturday and bowls on Sunday. We will cover sharpening, wood selection and tool selection and usage.
+
+######  Turning is a great hobby and a useful skill for making furniture elements like legs or columns. Craft items like pizza cutters and bottle stoppers are another option for the spindle turner. 
+
+**Tools**
+
+· Bring whatever turning tools you may have
+
+## Build a Small Sea Chest. At the Paramount in St. Cloud MN
+
+* Date: January 18th and 19th, 
+* Cost: $220
+* Materials: Included
+* Skill Level: Intermediate
+* [e-mail](http://schoolofwood.com/contact)
+* sign up here [https://paramountarts.org/art-classes/](https://paramountarts.org/art-classes/ "https://paramountarts.org/art-classes/")
+
+**Course Description**
+
+We will be building a small "Sea Chest“ with angled sides. The finished chest will be about 12×12×24 with dovetailed corners. You will learn to make angled dovetails as you build this traditional form. We will only be using hand tools to create this chest. This would make a great gift! Bring what tools you have. We will have some to loan.
+
+**Tools**
+
+* Dovetail saw
+* Block Plane
+* #5 sized plane
+* Chisels
+* Mallet
+* Square
+* Marking Knife
+* Crosscut Saw
+* Marking gauge
+* Bevel
