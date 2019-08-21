@@ -43,3 +43,28 @@ Most people have never used a properly sharpened handsaw so they don't realize h
 **Tools**
 
 Bring a 10 to 6 point saw that needs to be sharpened and a saw vise if you have one, an 8 point saw is best. If you don't have a saw you want to practice on Mike has some practice saws. You can bring extra saws for evaluation. Many students bring an 8 point crosscut saw and a 5 or 5 1/2 point ripsaw and sharpen them both!
+
+**Just Joints: Handcut Joinery**
+
+* Date: December 7th and 8th, Saturday, 9:00 – 5:00, Sunday, 10:00 to 4:30
+* Cost: $260
+* Materials: Included
+* Skill Level: All
+* [e-mail](http://schoolofwood.com/contact)
+
+**Course Description**
+
+On the first day we will learn to lay out and cut several basic woodworking joints. We will cut mortise and tenon and bridle joints. Learning to saw straight, cut to the line and chop and pare with a chisel to your mark. Working our way up to dovetails on day two. We will also cover wood movement and why joints are made the way they are. 
+
+Whether for drawers or case work dovetails are actually pretty basic woodworking. At first it can be a bit difficult to keep it all straight. Pins first? Tails first? What's a pin or tail? Which piece is the waste? What's a half pin? How do you keep the pieces organized? It will all become clear as you learn to layout, saw and chop this signature woodworking joint. We will do through and half-blind joints, then make a box! Bring the tools you have. I have some I can loan you.
+
+**Tools Needed:**
+
+* Dovetail saw (for small joints)
+* Carcass saw (for casework joints)
+* Sharp Chisels
+* Mallet
+* Marking Gauge
+* Marking Knife
+* 6" Square
+* Smooth Plane
