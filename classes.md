@@ -8,7 +8,7 @@ permalink: "/classes"
 
 ![](/uploads/planesandchisels.JPG)
 
-* Date:  Saturday June 29, 9:00 - 5:00,
+* Date:  Saturday November 23rd, 9:00 - 5:00,
 * Cost: $130. Combine with the handsaw class and save $20! $240 for both classes.
 * Materials: Included
 * Skill Level: All
@@ -22,13 +22,13 @@ Getting your tools sharp is possibly the most important skill a woodworker can l
 
 **Tools**
 
-* Bring your planes and chisels and scrapers to work on and your sharpening stones for assessment. I will have sharpening stations set up for your use.
+* Bring your planes and chisels and scrapers to work on and your sharpening stones for assessment. I will have sharpening stations set up for your use. If you don't have a plane to tune up I have several for sale at reasonable prices.
 
 ## Sharpening and Using Handsaws: Sharpen a Handsaw (and an auger bit!)
 
 ![](/uploads/sawsharpening.JPG)
 
-* Date: Sunday June 30th, 10:00 to 5:00
+* Date: Sunday November 24th, 10:00 to 5:00
 * Cost: $130.  Combine with the handsaw class and save $20! $240 for both classes
 * Materials: included
 * Skill Level: All
@@ -38,7 +38,7 @@ Getting your tools sharp is possibly the most important skill a woodworker can l
 
 **Course description**
 
-Most people have never used a properly sharpened handsaw so they don't realize how well they work. Find out what you are missing! In the morning Mike will demonstrate how to bring an old saw back to life. We will go over what to look for in a handsaw and how to sharpen a saw. We will supply files and vises. Bring a saw to sharpen, between 10 and 6 points per inch and a saw vise if you have one. If you don't have a saw that you want to practice on Mike has some practice saws. He sometimes has a few saws for sale. In the afternoon we will also file an auger bit.
+Most people have never used a properly sharpened handsaw so they don't realize how well they work. Find out what you are missing! In the morning Mike will demonstrate how to bring an old saw back to life. We will go over what to look for in a handsaw and how to sharpen a saw. We will supply files and vises. Bring a saw to sharpen, between 10 and 6 points per inch and a saw vise if you have one. If you don't have a saw that you want to practice on Mike has some practice saws. He also has a few saws for sale. In the afternoon we will also file an auger bit.
 
 **Tools**
 
