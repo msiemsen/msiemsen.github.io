@@ -60,6 +60,8 @@ Bring a 10 to 6 point saw that needs to be sharpened and a saw vise if you have 
 
 ## Just Joints: Handcut Joinery
 
+![](/uploads/dovetailing.jpg)
+
 * Date: December 7th and 8th, Saturday, 9:00 – 5:00, Sunday, 10:00 to 4:30
 * Cost: $260
 * Materials: Included
@@ -85,6 +87,8 @@ Whether for drawers or case work dovetails are actually pretty basic woodworking
 
 ## Introduction to Wood Turning
 
+![](/uploads/IMG_20170517_103842.jpg)
+
 * Date: January 4th and 5th, Saturday, 9:00 – 5:00, Sunday 10:00 to 4:30
 * Cost: $220
 
@@ -104,6 +108,8 @@ Materials: Included
 · Bring whatever turning tools you may have
 
 ## Build a Small Sea Chest. At the Paramount in St. Cloud MN
+
+![](/uploads/Small sea chest.jpg.jpg)
 
 * Date: January 18th and 19th,
 * Cost: $220
