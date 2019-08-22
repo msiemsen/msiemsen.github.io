@@ -12,9 +12,9 @@ permalink: "/classes"
 
 We will be building a reclining Arts and Crafts style Morris chair. We will use a combination of hand and power tools to build this iconic furniture form from quarter sawn oak. When our chairs are finished we will set up a session with Cynthia at Funky Little Chair To do the upholstery.
 
-* Date: 3 weekends. October 26th and 27th, November 2nd and 3rd and November 9th and 10th. 9:00 to 5:00
+* Dates:  6 days. October 17th-20th, October 26th and 27th. 9:00 to 5:00
 * Cost: $780. plus materials
-* Materials: TBD around $100, does not include upholstery.
+* Materials: TBD around $120, does not include upholstery.
 * Skill Level: Intermediate
 * [e-mail](http://schoolofwood.com/contact)
 
