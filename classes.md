@@ -16,7 +16,7 @@ We will be building a reclining Arts and Crafts style Morris chair. We will use 
 * Cost: $780. plus materials
 * Materials: TBD around $120, does not include upholstery.
 * Skill Level: Intermediate
-* [e-mail](http://schoolofwood.com/contact)
+* Mike@schoolofwood.com
 
 ## Sharpening and Tuning Chisels, Planes and Scrapers
 
@@ -26,7 +26,7 @@ We will be building a reclining Arts and Crafts style Morris chair. We will use 
 * Cost: $130. Combine with the handsaw class and save $20! $240 for both classes.
 * Materials: Included
 * Skill Level: All
-* [e-mail](http://schoolofwood.com/mailto:)
+* Mike@schoolofwood.com
 
 **A gateway skills class**
 
@@ -46,7 +46,7 @@ Getting your tools sharp is possibly the most important skill a woodworker can l
 * Cost: $130.  Combine with the handsaw class and save $20! $240 for both classes
 * Materials: included
 * Skill Level: All
-* [e-mail](http://schoolofwood.com/contact)
+* Mike@schoolofwood.com
 
 **A gateway skills class**
 
@@ -66,7 +66,7 @@ Bring a 10 to 6 point saw that needs to be sharpened and a saw vise if you have 
 * Cost: $260
 * Materials: Included
 * Skill Level: All
-* [e-mail](http://schoolofwood.com/contact)
+* Mike@schoolofwood.com
 
 **Course Description**
 
@@ -95,7 +95,7 @@ Whether for drawers or case work dovetails are actually pretty basic woodworking
 Materials: Included
 
 * Skill Level: Intermediate
-* [e-mail](http://schoolofwood.com/contact)
+* Mike@schoolofwood.com
 
 #### Course Description
 
@@ -115,7 +115,7 @@ Materials: Included
 * Cost: $220
 * Materials: Included
 * Skill Level: Intermediate
-* [e-mail](http://schoolofwood.com/contact)
+* Mike@schoolofwood.com
 * sign up here [https://paramountarts.org/art-classes/](https://paramountarts.org/art-classes/ "https://paramountarts.org/art-classes/")
 
 **Course Description**
