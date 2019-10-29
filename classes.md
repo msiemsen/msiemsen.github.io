@@ -26,7 +26,7 @@ We will be building a reclining Arts and Crafts style Morris chair. We will use 
 * Cost: $130. Combine with the handsaw class and save $20! $240 for both classes.
 * Materials: Included
 * Skill Level: All
-* [e-mail](http://schoolofwood.com/contact)
+* [e-mail](http://schoolofwood.com/mailto:)
 
 **A gateway skills class**
 
