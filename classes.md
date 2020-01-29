@@ -111,10 +111,10 @@ Materials: Included
 
 ![](/uploads/Small sea chest.jpg.jpg)
 
-* Date: January 18th and 19th,
+* Date: February 8th and 9th,
 * Cost: $220
 * Materials: Included
-* Skill Level: Intermediate
+* Skill Level: beginner/intermediate
 * Mike@schoolofwood.com
 * sign up here [https://paramountarts.org/art-classes/](https://paramountarts.org/art-classes/ "https://paramountarts.org/art-classes/")
 
