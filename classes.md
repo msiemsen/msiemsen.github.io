@@ -4,26 +4,40 @@ title: Classes
 permalink: "/classes"
 
 ---
-## Morris Chair
+### ![](/uploads/craftsyme.jpg)
 
-### Course Description
+## A Place To Sit: Make a Bench
 
-![](/uploads/morris chair.png)
+* Date: Saturday, April 4th, 9:00 – 5:00
+* Cost: $150
+* Materials: included
+* Skill Level: All/beginner
+* [Mike@schoolofwood.com](mike@schoolofwood.com "email")
 
-We will be building a reclining Arts and Crafts style Morris chair. We will use a combination of hand and power tools to build this iconic furniture form from quarter sawn oak. When our chairs are finished we will set up a session with Cynthia at Funky Little Chair To do the upholstery.
+**A gateway skills class**
 
-* Dates:  6 days. October 17th-20th, October 26th and 27th. 9:00 to 5:00
-* Cost: $780. plus materials
-* Materials: TBD around $120, does not include upholstery.
-* Skill Level: Intermediate
-* Mike@schoolofwood.com
+### Course description
+
+This is a great place to get your feet wet in woodworking and make a useful and attractive piece of furniture. The handcut joinery is strong and simple and easy to repeat at home. We will plane a taper, use a bow or coping saw, chisel a dado, and auger holes for wood pegs with a brace and bit.
+
+## Lie-Nielsen Hand Tool Event
+
+* Date: Friday and Saturday April 17th and 18th, 10:00 t0 5:00
+* Free
+
+Sponsored by the Central Minnesota Woodworkers Association
+
+[248 33rd Ave South  
+Waite Park, MN 56387](https://goo.gl/maps/8axcX3UvuFx)
+
+See you there!
 
 ## Sharpening and Tuning Chisels, Planes and Scrapers
 
 ![](/uploads/planesandchisels.JPG)
 
-* Date:  Saturday November 23rd, 9:00 - 5:00,
-* Cost: $130. Combine with the handsaw class and save $20! $240 for both classes.
+* Date:  Saturday April 25th, 9:00 - 5:00,
+* Cost: $140. Combine with the handsaw class and save $20! $260 for both classes.
 * Materials: Included
 * Skill Level: All
 * Mike@schoolofwood.com
@@ -32,7 +46,7 @@ We will be building a reclining Arts and Crafts style Morris chair. We will use 
 
 ### Course Description
 
-Getting your tools sharp is possibly the most important skill a woodworker can learn. Sharpening should be a quick and easy task. Mike will show you what it takes to obtain and maintain a good sharp edge. We will discuss various sharpening systems as well as different bevel angles and why they are used. You will also get ideas for setting up a sharpening station in your shop. Our goal is for you to achieve the 5 minute edge, the time it takes to remove and sharpen a plane iron, replace it, and get back to work. You will also learn what it takes to make a plane work properly, whether you are flattening a board and removing lots of material, jointing an edge, or smoothing for a finished surface. We will discuss when an iron needs camber and when an iron should be straight, and the nuances in between. You will learn what to look for in a plane, and what to avoid and how to correct deficiencies in your planes. We will flatten plane soles, adjust frogs and make your planes sing!
+Getting your tools sharp is probably the most important skill a woodworker can learn. Sharpening should be a quick and easy task. Mike will show you what it takes to obtain and maintain a good sharp edge. We will discuss various sharpening systems as well as different bevel angles and why they are used. You will also get ideas for setting up a sharpening station in your shop. Our goal is for you to achieve the 5 minute edge, the time it takes to remove and sharpen a plane iron, replace it, and get back to work. You will also learn what it takes to make a plane work properly, whether you are flattening a board and removing lots of material, jointing an edge, or smoothing for a finished surface. We will discuss when an iron needs camber and when an iron should be straight, and the nuances in between. You will learn what to look for in a plane, and what to avoid and how to correct deficiencies in your planes. We will flatten plane soles, adjust frogs and make your planes sing!
 
 **Tools**
 
@@ -42,15 +56,15 @@ Getting your tools sharp is possibly the most important skill a woodworker can l
 
 ![](/uploads/sawsharpening.JPG)
 
-* Date: Sunday November 24th, 10:00 to 5:00
-* Cost: $130.  Combine with the handsaw class and save $20! $240 for both classes
+* Date: Sunday April 26th, 10:00 to 5:00
+* Cost: $140.  Combine with the handsaw class and save $20! $260 for both classes
 * Materials: included
 * Skill Level: All
 * Mike@schoolofwood.com
 
 **A gateway skills class**
 
-**Course description**
+### Course description
 
 Most people have never used a properly sharpened handsaw so they don't realize how well they work. Find out what you are missing! In the morning Mike will demonstrate how to bring an old saw back to life. We will go over what to look for in a handsaw and how to sharpen a saw. We will supply files and vises. Bring a saw to sharpen, between 10 and 6 points per inch and a saw vise if you have one. If you don't have a saw that you want to practice on Mike has some practice saws. He also has a few saws for sale. In the afternoon we will also file an auger bit.
 
@@ -58,19 +72,74 @@ Most people have never used a properly sharpened handsaw so they don't realize h
 
 Bring a 10 to 6 point saw that needs to be sharpened and a saw vise if you have one, an 8 point saw is best. If you don't have a saw you want to practice on Mike has some practice saws. You can bring extra saws for evaluation. Many students bring an 8 point crosscut saw and a 5 or 5 1/2 point ripsaw and sharpen them both!
 
+![](/uploads/doublescrewvise,mallets.JPG)
+
+## Tool Making, Make a Moxon Double Screw Vise, a Marking Gauge, a Mallet, and a Marking Knife
+
+* Date: Saturday and Sunday, May 2nd and 3rd, 9:00 – 4:30
+* Cost: $290
+* Materials:Included
+* Skill Level: All
+* [e-mail](http://schoolofwood.com/contact)
+
+**A gateway skills class**
+
+### Course Description
+
+We will be making a traditional double screw vise as shown in Randal Holme and Moxon. Also a mallet, a marking gauge, and a marking knife. You will use hand tools to make these four very useful items for your shop and gain the ability to make more of them as needed. Hand chopped mortises, boring with a brace and bit, threading with a screwbox and tap are all covered. We will do a bit of metal work on the marking knife, grinding and filing the blade to shape then hardening and tempering the steel. The tools alone are worth the cost of the class!
+
+**Tools Needed: Bring what you have**
+
+* Chisels
+* block plane
+
+## MWTCA Tool Meet in Hastings,MN
+
+Date: Saturday, May 16, 7:30 to 12:00 noon
+
+Where: The National Guard Armory, 3050 HWY 316 (Redwing Blvd.) Hastings Minnesota, 55033.
+
+Cost: You must be a member. I believe they waive the $16 entry fee when you join at the door for $25. There are 3 meets a year.
+
+Description: MWTCA tool meets are a great place to shop for tools and visit with like minded people. I will be there demonstrating. Bring a few tools to sell, buy tools, view tool displays. Trading starts at 8:30.
+
+![](/uploads/IMG_20170611_165557.jpg)
+
+## Build a Nicholson Workbench
+
+Date: Saturday, Sunday and Monday, May 23rd - May 25th, Saturday 9:00 - 5:00, Sunday 10:00 to 5:00, Monday 9:00 to 5:00
+
+* Cost: $550
+* Materials: Included
+* Skill Level: All
+* "e-mail":/contact
+
+### Course Description
+
+We will be building the iconic Nicholson workbench in a 6 foot length. If you want a longer bench let me know when you sign up. There will be a materials up-charge for longer benches (cost of materials only). In order to get done in 2 days we will primarily be using power tools. We will go over flattening the bench top but you will do that at home after your bench settles in. If you want to see one of these benches in action watch my youtube video. [https://www.youtube.com/watch?v=yvhn-PAfEW4](https://www.youtube.com/watch?v=yvhn-PAfEW4 "https://www.youtube.com/watch?v=yvhn-PAfEW4")
+
+**Please sign up early so I can get the materials in!**
+
+#### Tools Needed:
+
+* Sharp Chisels
+* Mallet
+* Square
+* Marking knife
+
 ## Just Joints: Handcut Joinery
 
 ![](/uploads/dovetailing.jpg)
 
-* Date: December 7th and 8th, Saturday, 9:00 – 5:00, Sunday, 10:00 to 4:30
-* Cost: $260
+* Date: June 6th and 7th, Saturday, 9:00 – 5:00, Sunday, 10:00 to 4:30
+* Cost: $280
 * Materials: Included
 * Skill Level: All
 * Mike@schoolofwood.com
 
 **Course Description**
 
-On the first day we will learn to lay out and cut several basic woodworking joints. We will cut mortise and tenon and bridle joints. Learning to saw straight, cut to the line and chop and pare with a chisel to your mark. Working our way up to dovetails on day two. We will also cover wood movement and why joints are made the way they are.
+On the first day we will learn to lay out and cut several basic woodworking joints. We will cut mortise and tenon and bridle joints. Learning to layout joints, saw straight, cut to the line and chop and pare with a chisel to your mark. Working our way up to dovetails on day two. We will also cover wood movement and why joints are made the way they are.
 
 Whether for drawers or case work dovetails are actually pretty basic woodworking. At first it can be a bit difficult to keep it all straight. Pins first? Tails first? What's a pin or tail? Which piece is the waste? What's a half pin? How do you keep the pieces organized? It will all become clear as you learn to layout, saw and chop this signature woodworking joint. We will do through and half-blind joints, then make a box! Bring the tools you have. I have some I can loan you.
 
@@ -89,8 +158,8 @@ Whether for drawers or case work dovetails are actually pretty basic woodworking
 
 ![](/uploads/IMG_20170517_103842.jpg)
 
-* Date: January 4th and 5th, Saturday, 9:00 – 5:00, Sunday 10:00 to 4:30
-* Cost: $220
+* Date: June 13th and 14th, Saturday, 9:00 – 5:00, Sunday 10:00 to 4:30
+* Cost: $260
 
 Materials: Included
 
@@ -107,16 +176,15 @@ Materials: Included
 
 · Bring whatever turning tools you may have
 
-## Build a Small Sea Chest. At the Paramount in St. Cloud MN
+## Build a Small Sea Chest
 
 ![](/uploads/Small sea chest.jpg.jpg)
 
-* Date: February 8th and 9th,
-* Cost: $220
+* Date: July 25th and 26th,
+* Cost: $250
 * Materials: Included
 * Skill Level: beginner/intermediate
 * Mike@schoolofwood.com
-* sign up here [https://paramountarts.org/art-classes/](https://paramountarts.org/art-classes/ "https://paramountarts.org/art-classes/")
 
 **Course Description**
 
