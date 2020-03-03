@@ -40,7 +40,7 @@ See you there!
 * Cost: $140. Combine with the handsaw class and save $20! $260 for both classes.
 * Materials: Included
 * Skill Level: All
-* Mike@schoolofwood.com
+* [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
 
 **A gateway skills class**
 
@@ -60,7 +60,7 @@ Getting your tools sharp is probably the most important skill a woodworker can l
 * Cost: $140.  Combine with the handsaw class and save $20! $260 for both classes
 * Materials: included
 * Skill Level: All
-* Mike@schoolofwood.com
+* [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
 
 **A gateway skills class**
 
@@ -80,7 +80,7 @@ Bring a 10 to 6 point saw that needs to be sharpened and a saw vise if you have 
 * Cost: $290
 * Materials:Included
 * Skill Level: All
-* Mike@schoolofwood.com
+* [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
 
 **A gateway skills class**
 
@@ -112,7 +112,7 @@ Date: Saturday, Sunday and Monday, May 23rd - May 25th, Saturday 9:00 - 5:00, Su
 * Cost: $550
 * Materials: Included
 * Skill Level: All
-* Mike@schoolofwood.com
+* [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
 
 ### Course Description
 
@@ -135,7 +135,7 @@ We will be building the iconic Nicholson workbench in a 6 foot length. If you wa
 * Cost: $280
 * Materials: Included
 * Skill Level: All
-* Mike@schoolofwood.com
+* [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
 
 **Course Description**
 
@@ -164,7 +164,7 @@ Whether for drawers or case work dovetails are actually pretty basic woodworking
 Materials: Included
 
 * Skill Level: Intermediate
-* Mike@schoolofwood.com
+* [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
 
 #### Course Description
 
@@ -184,7 +184,7 @@ Materials: Included
 * Cost: $250
 * Materials: Included
 * Skill Level: beginner/intermediate
-* Mike@schoolofwood.com
+* [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
 
 **Course Description**
 
