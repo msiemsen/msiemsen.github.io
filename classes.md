@@ -12,7 +12,7 @@ permalink: "/classes"
 * Cost: $150
 * Materials: included
 * Skill Level: All/beginner
-* [Mike@schoolofwood.com](mike@schoolofwood.com "email")
+* Mike@schoolofwood.com
 
 **A gateway skills class**
 
@@ -80,7 +80,7 @@ Bring a 10 to 6 point saw that needs to be sharpened and a saw vise if you have 
 * Cost: $290
 * Materials:Included
 * Skill Level: All
-* [e-mail](http://schoolofwood.com/contact)
+* Mike@schoolofwood.com
 
 **A gateway skills class**
 
@@ -112,7 +112,7 @@ Date: Saturday, Sunday and Monday, May 23rd - May 25th, Saturday 9:00 - 5:00, Su
 * Cost: $550
 * Materials: Included
 * Skill Level: All
-* "e-mail":/contact
+* Mike@schoolofwood.com
 
 ### Course Description
 
