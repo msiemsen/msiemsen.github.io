@@ -12,7 +12,7 @@ permalink: "/classes"
 * Cost: $150
 * Materials: included
 * Skill Level: All/beginner
-* mike@schoolofwood.com
+* [mike@schoolofwood.com]()
 
 **A gateway skills class**
 
