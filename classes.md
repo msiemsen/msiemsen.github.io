@@ -202,3 +202,15 @@ We will be building a small "Sea Chest“ with angled sides. The finished chest 
 * Crosscut Saw
 * Marking gauge
 * Bevel
+
+![](/uploads/handworks2020.jpg)
+
+## Handworks 2020
+
+Best Woodworking event ever! Amana Iowa
+
+September 3rd through the 5th
+
+Free
+
+Visit my booth!
