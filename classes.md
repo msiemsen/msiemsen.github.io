@@ -6,7 +6,7 @@ permalink: "/classes"
 ---
 ### 
 
-![](/uploads/craftsyme.jpg)
+![](/uploads/DSC_0014.JPG)
 
 ## A Place To Sit: Make a Bench
 
