@@ -4,9 +4,7 @@ title: Classes
 permalink: "/classes"
 
 ---
-### 
-
-![](/uploads/DSC_0014.JPG)
+### ![](/uploads/DSC_0014.JPG)
 
 ## A Place To Sit: Make a Bench
 
