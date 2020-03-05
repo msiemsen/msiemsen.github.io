@@ -129,6 +129,8 @@ We will be building the iconic Nicholson workbench in a 6 foot length. If you wa
 
 ## Just Joints: Handcut Joinery
 
+![](/uploads/dovetailing.jpg)
+
 * Date: June 6th and 7th, Saturday, 9:00 – 5:00, Sunday, 10:00 to 4:30
 * Cost: $280
 * Materials: Included
