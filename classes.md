@@ -103,9 +103,9 @@ Cost: You must be a member. I believe they waive the $16 entry fee when you join
 
 Description: MWTCA tool meets are a great place to shop for tools and visit with like minded people. I will be there demonstrating. Bring a few tools to sell, buy tools, view tool displays. Trading starts at 8:30.
 
-![](/uploads/IMG_20170611_165557.jpg)
-
 ## Build a Nicholson Workbench
+
+![](/uploads/IMG_20170611_165557.jpg)
 
 Date: Saturday, Sunday and Monday, May 23rd - May 25th, Saturday 9:00 - 5:00, Sunday 10:00 to 5:00, Monday 9:00 to 5:00
 
