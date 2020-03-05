@@ -72,9 +72,9 @@ Most people have never used a properly sharpened handsaw so they don't realize h
 
 Bring a 10 to 6 point saw that needs to be sharpened and a saw vise if you have one, an 8 point saw is best. If you don't have a saw you want to practice on Mike has some practice saws. You can bring extra saws for evaluation. Many students bring an 8 point crosscut saw and a 5 or 5 1/2 point ripsaw and sharpen them both!
 
-![](/uploads/IMG_20161105_171553.jpg)
-
 ## Tool Making, Make a Moxon Double Screw Vise, a Marking Gauge, a Mallet, and a Marking Knife
+
+![](/uploads/IMG_20161105_171553.jpg)
 
 * Date: Saturday and Sunday, May 2nd and 3rd, 9:00 – 4:30
 * Cost: $290
