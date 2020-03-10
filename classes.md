@@ -22,6 +22,8 @@ This is a great place to get your feet wet in woodworking and make a useful and 
 
 ## Lie-Nielsen Hand Tool Event
 
+## Cancelled
+
 * Date: Friday and Saturday April 17th and 18th, 10:00 t0 5:00
 * Free
 
@@ -29,8 +31,6 @@ Sponsored by the Central Minnesota Woodworkers Association
 
 [248 33rd Ave South  
 Waite Park, MN 56387](https://goo.gl/maps/8axcX3UvuFx)
-
-See you there!
 
 ## Sharpening and Tuning Chisels, Planes and Scrapers
 
