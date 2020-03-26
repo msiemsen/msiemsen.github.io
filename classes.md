@@ -8,6 +8,8 @@ permalink: "/classes"
 
 ## A Place To Sit: Make a Bench
 
+## cancelled
+
 * Date: Saturday, April 4th, 9:00 – 5:00
 * Cost: $150
 * Materials: included
@@ -94,6 +96,8 @@ We will be making a traditional double screw vise as shown in Randal Holme and M
 * block plane
 
 ## MWTCA Tool Meet in Hastings,MN
+
+## cancelled
 
 Date: Saturday, May 16, 7:30 to 12:00 noon
 
