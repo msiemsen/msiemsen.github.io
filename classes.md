@@ -36,6 +36,8 @@ Waite Park, MN 56387](https://goo.gl/maps/8axcX3UvuFx)
 
 ## Sharpening and Tuning Chisels, Planes and Scrapers
 
+## cancelled
+
 ![](/uploads/planesandchisels.JPG)
 
 * Date:  Saturday April 25th, 9:00 - 5:00,
@@ -56,6 +58,8 @@ Getting your tools sharp is probably the most important skill a woodworker can l
 
 ## Sharpening and Using Handsaws: Sharpen a Handsaw (and an auger bit!)
 
+## cancelled
+
 ![](/uploads/sawsharpening.JPG)
 
 * Date: Sunday April 26th, 10:00 to 5:00
@@ -75,6 +79,8 @@ Most people have never used a properly sharpened handsaw so they don't realize h
 Bring a 10 to 6 point saw that needs to be sharpened and a saw vise if you have one, an 8 point saw is best. If you don't have a saw you want to practice on Mike has some practice saws. You can bring extra saws for evaluation. Many students bring an 8 point crosscut saw and a 5 or 5 1/2 point ripsaw and sharpen them both!
 
 ## Tool Making, Make a Moxon Double Screw Vise, a Marking Gauge, a Mallet, and a Marking Knife
+
+## cancelled
 
 ![](/uploads/IMG_20161105_171553.jpg)
 
@@ -109,6 +115,8 @@ Description: MWTCA tool meets are a great place to shop for tools and visit with
 
 ## Build a Nicholson Workbench
 
+## cancelled
+
 ![](/uploads/IMG_20170611_165557.jpg)
 
 Date: Saturday, Sunday and Monday, May 23rd - May 25th, Saturday 9:00 - 5:00, Sunday 10:00 to 5:00, Monday 9:00 to 5:00
@@ -132,6 +140,8 @@ We will be building the iconic Nicholson workbench in a 6 foot length. If you wa
 * Marking knife
 
 ## Just Joints: Handcut Joinery
+
+## cancelled
 
 ![](/uploads/dovetailing.jpg)
 
