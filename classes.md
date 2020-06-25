@@ -170,6 +170,8 @@ Whether for drawers or case work dovetails are actually pretty basic woodworking
 
 ## Introduction to Wood Turning
 
+## Cancelled
+
 ![](/uploads/IMG_20170517_103842.jpg)
 
 * Date: June 13th and 14th, Saturday, 9:00 – 5:00, Sunday 10:00 to 4:30
@@ -191,6 +193,8 @@ Materials: Included
 · Bring whatever turning tools you may have
 
 ## Build a Small Sea Chest
+
+## Cancelled
 
 ![](/uploads/Small sea chest.jpg.jpg)
 
@@ -220,6 +224,8 @@ We will be building a small "Sea Chest“ with angled sides. The finished chest 
 ![](/uploads/handworks2020.jpg)
 
 ## Handworks 2020
+
+## Cancelled
 
 Best Woodworking event ever! Amana Iowa
 
