@@ -4,11 +4,15 @@ title: Classes
 permalink: "/classes"
 
 ---
-### ![](/uploads/DSC_0014.JPG)
+# I will not be posting new classes until the Pandemic is contained.
+
+# I have left the old classes up so you can see what I normally teach.
+
+ ![](/uploads/DSC_0014.JPG)
 
 ## A Place To Sit: Make a Bench
 
-## cancelled
+# cancelled
 
 * Date: Saturday, April 4th, 9:00 – 5:00
 * Cost: $150
