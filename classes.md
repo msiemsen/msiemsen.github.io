@@ -89,13 +89,13 @@ We will be making a traditional double screw vise as shown in Randal Holme and M
 
 ## cancelled
 
-Date: Saturday, May 16, 7:30 to 12:00 noon
+Date: Saturday, May 22, 7:30 to 12:00 noon
 
 Where: The National Guard Armory, 3050 HWY 316 (Redwing Blvd.) Hastings Minnesota, 55033.
 
-Cost: You must be a member. I believe they waive the $16 entry fee when you join at the door for $25. There are 3 meets a year.
+Cost:  $10 entry fee. You must be a member. You can join at the door for $25I believe. There are 3 meets a year.
 
-Description: MWTCA tool meets are a great place to shop for tools and visit with like minded people. I will be there demonstrating. Bring a few tools to sell, buy tools, view tool displays. Trading starts at 8:30.
+Description: MWTCA tool meets are a great place to shop for tools and visit with like minded people. I will be there demonstrating. Bring a few tools to sell, buy tools, view tool displays. Registration starts at 7:30, Trading starts at 8:30. **Social distancing and masks required.**
 
 ## Build a Nicholson Workbench
 
