@@ -4,7 +4,7 @@ title: Classes
 permalink: "/classes"
 
 ---
-under construction
+under construction don't sign up yet.
 
 # You may attend classes if you are fully vaccinated 
 
@@ -86,8 +86,6 @@ We will be making a traditional double screw vise as shown in Randal Holme and M
 * block plane
 
 ## MWTCA Tool Meet in Hastings,MN
-
-## cancelled
 
 Date: Saturday, May 22, 7:30 to 12:00 noon
 
