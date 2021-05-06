@@ -4,15 +4,13 @@ title: Classes
 permalink: "/classes"
 
 ---
-# I will not be posting new classes until the Pandemic is contained.
+under construction
 
-# I have left the old classes up so you can see what I normally teach.
+# You may attend classes if you are fully vaccinated 
 
- ![](/uploads/DSC_0014.JPG)
+![](/uploads/DSC_0014.JPG)
 
 ## A Place To Sit: Make a Bench
-
-# cancelled
 
 * Date: Saturday, April 4th, 9:00 – 5:00
 * Cost: $150
@@ -26,21 +24,7 @@ permalink: "/classes"
 
 This is a great place to get your feet wet in woodworking and make a useful and attractive piece of furniture. The handcut joinery is strong and simple and easy to repeat at home. We will plane a taper, use a bow or coping saw, chisel a dado, and auger holes for wood pegs with a brace and bit.
 
-## Lie-Nielsen Hand Tool Event
-
-## Cancelled
-
-* Date: Friday and Saturday April 17th and 18th, 10:00 t0 5:00
-* Free
-
-Sponsored by the Central Minnesota Woodworkers Association
-
-[248 33rd Ave South  
-Waite Park, MN 56387](https://goo.gl/maps/8axcX3UvuFx)
-
 ## Sharpening and Tuning Chisels, Planes and Scrapers
-
-## cancelled
 
 ![](/uploads/planesandchisels.JPG)
 
@@ -62,8 +46,6 @@ Getting your tools sharp is probably the most important skill a woodworker can l
 
 ## Sharpening and Using Handsaws: Sharpen a Handsaw (and an auger bit!)
 
-## cancelled
-
 ![](/uploads/sawsharpening.JPG)
 
 * Date: Sunday April 26th, 10:00 to 5:00
@@ -83,8 +65,6 @@ Most people have never used a properly sharpened handsaw so they don't realize h
 Bring a 10 to 6 point saw that needs to be sharpened and a saw vise if you have one, an 8 point saw is best. If you don't have a saw you want to practice on Mike has some practice saws. You can bring extra saws for evaluation. Many students bring an 8 point crosscut saw and a 5 or 5 1/2 point ripsaw and sharpen them both!
 
 ## Tool Making, Make a Moxon Double Screw Vise, a Marking Gauge, a Mallet, and a Marking Knife
-
-## cancelled
 
 ![](/uploads/IMG_20161105_171553.jpg)
 
@@ -119,8 +99,6 @@ Description: MWTCA tool meets are a great place to shop for tools and visit with
 
 ## Build a Nicholson Workbench
 
-## cancelled
-
 ![](/uploads/IMG_20170611_165557.jpg)
 
 Date: Saturday, Sunday and Monday, May 23rd - May 25th, Saturday 9:00 - 5:00, Sunday 10:00 to 5:00, Monday 9:00 to 5:00
@@ -144,8 +122,6 @@ We will be building the iconic Nicholson workbench in a 6 foot length. If you wa
 * Marking knife
 
 ## Just Joints: Handcut Joinery
-
-## cancelled
 
 ![](/uploads/dovetailing.jpg)
 
@@ -174,8 +150,6 @@ Whether for drawers or case work dovetails are actually pretty basic woodworking
 
 ## Introduction to Wood Turning
 
-## Cancelled
-
 ![](/uploads/IMG_20170517_103842.jpg)
 
 * Date: June 13th and 14th, Saturday, 9:00 – 5:00, Sunday 10:00 to 4:30
@@ -188,7 +162,7 @@ Materials: Included
 
 #### Course Description
 
-###### We will be turning spindles and Saturday and bowls on Sunday. We will cover sharpening, wood selection and tool selection and usage.
+###### We will be turning spindles on Saturday and bowls on Sunday. We will cover sharpening, wood selection and tool selection and usage.
 
 ###### Turning is a great hobby and a useful skill for making furniture elements like legs or columns. Craft items like pizza cutters and bottle stoppers are another option for the spindle turner.
 
@@ -197,8 +171,6 @@ Materials: Included
 · Bring whatever turning tools you may have
 
 ## Build a Small Sea Chest
-
-## Cancelled
 
 ![](/uploads/Small sea chest.jpg.jpg)
 
@@ -224,17 +196,3 @@ We will be building a small "Sea Chest“ with angled sides. The finished chest 
 * Crosscut Saw
 * Marking gauge
 * Bevel
-
-![](/uploads/handworks2020.jpg)
-
-## Handworks 2020
-
-## Cancelled
-
-Best Woodworking event ever! Amana Iowa
-
-September 3rd through the 5th
-
-Free
-
-Visit my booth!
