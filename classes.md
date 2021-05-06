@@ -4,7 +4,7 @@ title: Classes
 permalink: "/classes"
 
 ---
-under construction don't sign up yet.
+under construction don't sign up yet. Incorrect dates
 
 # You may attend classes if you are fully vaccinated 
 
