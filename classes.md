@@ -49,7 +49,7 @@ Getting your tools sharp is probably the most important skill a woodworker can l
 ![](/uploads/sawsharpening.JPG)
 
 * Date: Sunday April 26th, 10:00 to 5:00
-* Cost: $140.  Combine with the handsaw class and save $20! $260 for both classes
+* Cost: $140.  Combine with the planes class and save $20! $260 for both classes
 * Materials: included
 * Skill Level: All
 * [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
