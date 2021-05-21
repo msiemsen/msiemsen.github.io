@@ -4,16 +4,14 @@ title: Classes
 permalink: "/classes"
 
 ---
-under construction don't sign up yet. Incorrect dates
-
-# You may attend classes if you are fully vaccinated 
+# You may attend classes if you are fully vaccinated
 
 ![](/uploads/DSC_0014.JPG)
 
 ## A Place To Sit: Make a Bench
 
-* Date: Saturday, April 4th, 9:00 – 5:00
-* Cost: $150
+* Date: Saturday, June 19th, 9:00 – 5:00
+* Cost: $170
 * Materials: included
 * Skill Level: All/beginner
 * [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
@@ -28,8 +26,8 @@ This is a great place to get your feet wet in woodworking and make a useful and 
 
 ![](/uploads/planesandchisels.JPG)
 
-* Date:  Saturday April 25th, 9:00 - 5:00,
-* Cost: $140. Combine with the handsaw class and save $20! $260 for both classes.
+* Date:  Saturday June 26th, 9:00 - 5:00,
+* Cost: $160. Combine with the handsaw class and save $20!  $300 for both classes.
 * Materials: Included
 * Skill Level: All
 * [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
@@ -48,8 +46,8 @@ Getting your tools sharp is probably the most important skill a woodworker can l
 
 ![](/uploads/sawsharpening.JPG)
 
-* Date: Sunday April 26th, 10:00 to 5:00
-* Cost: $140.  Combine with the planes class and save $20! $260 for both classes
+* Date: Sunday June 27th, 10:00 to 5:00
+* Cost: $160.  Combine with the planes class and save $20! $300 for both classes
 * Materials: included
 * Skill Level: All
 * [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
@@ -68,8 +66,8 @@ Bring a 10 to 6 point saw that needs to be sharpened and a saw vise if you have 
 
 ![](/uploads/IMG_20161105_171553.jpg)
 
-* Date: Saturday and Sunday, May 2nd and 3rd, 9:00 – 4:30
-* Cost: $290
+* Date: Saturday and Sunday, July 10th and 11th, 9:00 – 4:30
+* Cost: $310
 * Materials:Included
 * Skill Level: All
 * [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
@@ -99,9 +97,9 @@ Description: MWTCA tool meets are a great place to shop for tools and visit with
 
 ![](/uploads/IMG_20170611_165557.jpg)
 
-Date: Saturday, Sunday and Monday, May 23rd - May 25th, Saturday 9:00 - 5:00, Sunday 10:00 to 5:00, Monday 9:00 to 5:00
+Date: Saturday, Sunday and Monday, July 17th, July 18th, July 19th, Saturday 9:00 - 5:00, Sunday 10:00 to 5:00, Monday 9:00 to 5:00
 
-* Cost: $550
+* Cost: $750
 * Materials: Included
 * Skill Level: All
 * [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
@@ -123,8 +121,8 @@ We will be building the iconic Nicholson workbench in a 6 foot length. If you wa
 
 ![](/uploads/dovetailing.jpg)
 
-* Date: June 6th and 7th, Saturday, 9:00 – 5:00, Sunday, 10:00 to 4:30
-* Cost: $280
+* Date: July 31, August 1, 9:00 – 5:00, Sunday, 10:00 to 4:30
+* Cost: $310
 * Materials: Included
 * Skill Level: All
 * [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
@@ -146,34 +144,12 @@ Whether for drawers or case work dovetails are actually pretty basic woodworking
 * 6" Square
 * Smooth Plane
 
-## Introduction to Wood Turning
-
-![](/uploads/IMG_20170517_103842.jpg)
-
-* Date: June 13th and 14th, Saturday, 9:00 – 5:00, Sunday 10:00 to 4:30
-* Cost: $260
-
-Materials: Included
-
-* Skill Level: Intermediate
-* [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
-
-#### Course Description
-
-###### We will be turning spindles on Saturday and bowls on Sunday. We will cover sharpening, wood selection and tool selection and usage.
-
-###### Turning is a great hobby and a useful skill for making furniture elements like legs or columns. Craft items like pizza cutters and bottle stoppers are another option for the spindle turner.
-
-**Tools**
-
-· Bring whatever turning tools you may have
-
 ## Build a Small Sea Chest
 
 ![](/uploads/Small sea chest.jpg.jpg)
 
-* Date: July 25th and 26th,
-* Cost: $250
+* Date: August 14th, 15th
+* Cost: $280
 * Materials: Included
 * Skill Level: beginner/intermediate
 * [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
@@ -194,3 +170,26 @@ We will be building a small "Sea Chest“ with angled sides. The finished chest 
 * Crosscut Saw
 * Marking gauge
 * Bevel
+
+  ## Paramount Center for the Arts
+
+  ### Sharpening and Using Handsaws: 
+
+  ### Sharpen a Handsaw, Build a Sawhorse
+
+  ![](/uploads/sawsharpening.JPG)
+  * Date: October 2nd and 3rd, 10:00 to 5:00
+  * Materials: included
+  * Skill Level: All
+  * [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
+
+  **A gateway skills class**
+* [https://paramountarts.org/art-classes/](https://paramountarts.org/art-classes/ "https://paramountarts.org/art-classes/")
+
+  ### Course description
+
+  Most people have never used a properly sharpened handsaw so they don't realize how well they work. Find out what you are missing! In the morning Mike will demonstrate how to bring an old saw back to life. We will go over what to look for in a handsaw and how to sharpen a saw. We will supply files and vises. Bring a saw to sharpen, between 10 and 6 points per inch and a saw vise if you have one. If you don't have a saw that you want to practice on Mike has some practice saws. He also has a few saws for sale. On day two we will use our saws to make a sawbench/sawhorse.
+
+  **Tools**
+
+  Bring a 10 to 6 point saw that needs to be sharpened and a saw vise if you have one, an 8 point saw is best. If you don't have a saw you want to practice on Mike has some practice saws. You can bring extra saws for evaluation. Many students bring an 8 point crosscut saw and a 5 or 5 1/2 point ripsaw and sharpen them both!
