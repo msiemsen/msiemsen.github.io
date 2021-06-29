@@ -193,3 +193,13 @@ Where: The National Guard Armory, 3050 HWY 316 (Redwing Blvd.) Hastings Minnesot
 Cost:  $10 entry fee. You must be a member. You can join at the door for $25 I believe. There are 3 meets a year.
 
 Description: MWTCA tool meets are a great place to shop for tools and visit with like minded people. I will be there demonstrating. Bring a few tools to sell, buy tools, view tool displays. Registration starts at 7:30, Trading starts at 8:30. **Social distancing and masks required.**
+
+## HandWorks
+
+September 2nd & 3rd 2022
+
+Don't miss it! Best woodworking event ever!
+
+For the fourth time, join modern woodworking hand tool makers and fellow enthusiasts for a weekend immersion in all things handwork. Unplug from the world of machines, dust and noise while listening to the crisp sounds of the hand plane, chisel and saw in a restored timber-frame dairy barn in the traditional, historic German village of Amana.
+
+https://handworks.co/
