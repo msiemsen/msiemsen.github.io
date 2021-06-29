@@ -196,7 +196,9 @@ Description: MWTCA tool meets are a great place to shop for tools and visit with
 
 ## HandWorks
 
-September 2nd & 3rd 2022
+### SAVE THE DATE!
+
+September 2nd & 3rd 2022 
 
 Don't miss it! Best woodworking event ever!
 
