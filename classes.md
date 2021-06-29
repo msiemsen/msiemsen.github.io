@@ -83,16 +83,6 @@ We will be making a traditional double screw vise as shown in Randal Holme and M
 * Chisels
 * block plane
 
-## MWTCA Tool Meet in Hastings,MN
-
-Date: Saturday, May 22, 7:30 to 12:00 noon
-
-Where: The National Guard Armory, 3050 HWY 316 (Redwing Blvd.) Hastings Minnesota, 55033.
-
-Cost:  $10 entry fee. You must be a member. You can join at the door for $25I believe. There are 3 meets a year.
-
-Description: MWTCA tool meets are a great place to shop for tools and visit with like minded people. I will be there demonstrating. Bring a few tools to sell, buy tools, view tool displays. Registration starts at 7:30, Trading starts at 8:30. **Social distancing and masks required.**
-
 ## Build a Nicholson Workbench
 
 ![](/uploads/IMG_20170611_165557.jpg)
@@ -193,3 +183,13 @@ We will be building a small "Sea Chest“ with angled sides. The finished chest 
   **Tools**
 
   Bring a 10 to 6 point saw that needs to be sharpened and a saw vise if you have one, an 8 point saw is best. If you don't have a saw you want to practice on Mike has some practice saws. You can bring extra saws for evaluation. Many students bring an 8 point crosscut saw and a 5 or 5 1/2 point ripsaw and sharpen them both!
+
+## MWTCA Tool Meet in Hastings,MN
+
+Date: Saturday, October 23, 2021, 7:30 to 12:00 noon
+
+Where: The National Guard Armory, 3050 HWY 316 (Redwing Blvd.) Hastings Minnesota, 55033.
+
+Cost:  $10 entry fee. You must be a member. You can join at the door for $25 I believe. There are 3 meets a year.
+
+Description: MWTCA tool meets are a great place to shop for tools and visit with like minded people. I will be there demonstrating. Bring a few tools to sell, buy tools, view tool displays. Registration starts at 7:30, Trading starts at 8:30. **Social distancing and masks required.**
