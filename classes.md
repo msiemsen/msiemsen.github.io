@@ -148,7 +148,7 @@ Whether for drawers or case work dovetails are actually pretty basic woodworking
 
 ![](/uploads/Small sea chest.jpg.jpg)
 
-* Date: August 14th, 15th
+* Date: August 14th, 15th, Saturday 9:00 – 5:00, Sunday, 10:00 to 4:30
 * Cost: $280
 * Materials: Included
 * Skill Level: beginner/intermediate
@@ -173,7 +173,7 @@ We will be building a small "Sea Chest“ with angled sides. The finished chest 
 
   ## Paramount Center for the Arts
 
-  ### Sharpening and Using Handsaws: 
+  ### Sharpening and Using Handsaws:
 
   ### Sharpen a Handsaw, Build a Sawhorse
 
