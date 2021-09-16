@@ -6,68 +6,12 @@ permalink: "/classes"
 ---
 # You may attend classes if you are fully vaccinated
 
-![](/uploads/DSC_0014.JPG)
-
-## A Place To Sit: Make a Bench
-
-* Date: Saturday, June 19th, 9:00 – 5:00
-* Cost: $170
-* Materials: included
-* Skill Level: All/beginner
-* [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
-
-**A gateway skills class**
-
-### Course description
-
-This is a great place to get your feet wet in woodworking and make a useful and attractive piece of furniture. The handcut joinery is strong and simple and easy to repeat at home. We will plane a taper, use a bow or coping saw, chisel a dado, and auger holes for wood pegs with a brace and bit.
-
-## Sharpening and Tuning Chisels, Planes and Scrapers
-
-![](/uploads/planesandchisels.JPG)
-
-* Date:  Saturday June 26th, 9:00 - 5:00,
-* Cost: $160. Combine with the handsaw class and save $20!  $300 for both classes.
-* Materials: Included
-* Skill Level: All
-* [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
-
-**A gateway skills class**
-
-### Course Description
-
-Getting your tools sharp is probably the most important skill a woodworker can learn. Sharpening should be a quick and easy task. Mike will show you what it takes to obtain and maintain a good sharp edge. We will discuss various sharpening systems as well as different bevel angles and why they are used. You will also get ideas for setting up a sharpening station in your shop. Our goal is for you to achieve the 5 minute edge, the time it takes to remove and sharpen a plane iron, replace it, and get back to work. You will also learn what it takes to make a plane work properly, whether you are flattening a board and removing lots of material, jointing an edge, or smoothing for a finished surface. We will discuss when an iron needs camber and when an iron should be straight, and the nuances in between. You will learn what to look for in a plane, and what to avoid and how to correct deficiencies in your planes. We will flatten plane soles, adjust frogs and make your planes sing!
-
-**Tools**
-
-* Bring your planes and chisels and scrapers to work on and your sharpening stones for assessment. I will have sharpening stations set up for your use. If you don't have a plane to tune up I have several for sale at reasonable prices.
-
-## Sharpening and Using Handsaws: Sharpen a Handsaw (and an auger bit!)
-
-![](/uploads/sawsharpening.JPG)
-
-* Date: Sunday June 27th, 10:00 to 5:00
-* Cost: $160.  Combine with the planes class and save $20! $300 for both classes
-* Materials: included
-* Skill Level: All
-* [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
-
-**A gateway skills class**
-
-### Course description
-
-Most people have never used a properly sharpened handsaw so they don't realize how well they work. Find out what you are missing! In the morning Mike will demonstrate how to bring an old saw back to life. We will go over what to look for in a handsaw and how to sharpen a saw. We will supply files and vises. Bring a saw to sharpen, between 10 and 6 points per inch and a saw vise if you have one. If you don't have a saw that you want to practice on Mike has some practice saws. He also has a few saws for sale. In the afternoon we will also file an auger bit.
-
-**Tools**
-
-Bring a 10 to 6 point saw that needs to be sharpened and a saw vise if you have one, an 8 point saw is best. If you don't have a saw you want to practice on Mike has some practice saws. You can bring extra saws for evaluation. Many students bring an 8 point crosscut saw and a 5 or 5 1/2 point ripsaw and sharpen them both!
-
 ## Tool Making, Make a Moxon Double Screw Vise, a Marking Gauge, a Mallet, and a Marking Knife
 
 ![](/uploads/IMG_20161105_171553.jpg)
 
-* Date: Saturday and Sunday, July 10th and 11th, 9:00 – 4:30
-* Cost: $310
+* Date: October 30th and 31st, Saturday 9:00 – 5:00, Sunday, 10:00 - 4:30
+* Cost: $330
 * Materials:Included
 * Skill Level: All
 * [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
@@ -83,35 +27,11 @@ We will be making a traditional double screw vise as shown in Randal Holme and M
 * Chisels
 * block plane
 
-## Build a Nicholson Workbench
-
-![](/uploads/IMG_20170611_165557.jpg)
-
-Date: Saturday, Sunday and Monday, July 17th, July 18th, July 19th, Saturday 9:00 - 5:00, Sunday 10:00 to 5:00, Monday 9:00 to 5:00
-
-* Cost: $750
-* Materials: Included
-* Skill Level: All
-* [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
-
-### Course Description
-
-We will be building the iconic Nicholson workbench in a 6 foot length. If you want a longer bench let me know when you sign up. There will be a materials up-charge for longer benches (cost of materials only). In order to get done in 2 days we will primarily be using power tools. We will go over flattening the bench top but you will do that at home after your bench settles in. If you want to see one of these benches in action watch my youtube video. [https://www.youtube.com/watch?v=yvhn-PAfEW4](https://www.youtube.com/watch?v=yvhn-PAfEW4 "https://www.youtube.com/watch?v=yvhn-PAfEW4")
-
-**Please sign up early so I can get the materials in!**
-
-#### Tools Needed:
-
-* Sharp Chisels
-* Mallet
-* Square
-* Marking knife
-
 ## Just Joints: Handcut Joinery
 
 ![](/uploads/dovetailing.jpg)
 
-* Date: July 31, August 1, 9:00 – 5:00, Sunday, 10:00 to 4:30
+* Date: November 13th and 14th, Saturday 9:00 – 5:00, Sunday, 10:00 - 4:30
 * Cost: $310
 * Materials: Included
 * Skill Level: All
@@ -133,47 +53,41 @@ Whether for drawers or case work dovetails are actually pretty basic woodworking
 * Marking Knife
 * 6" Square
 * Smooth Plane
+* 
 
-## Build a Small Sea Chest
+## A Place To Sit: Make a Bench
 
-![](/uploads/Small sea chest.jpg.jpg)
+![](/uploads/DSC_0014.JPG)
 
-* Date: August 14th, 15th, Saturday 9:00 – 5:00, Sunday, 10:00 to 4:30
-* Cost: $280
-* Materials: Included
-* Skill Level: beginner/intermediate
+* Date: Saturday, Dec. 4th, 9:00 – 5:00
+* Cost: $180
+* Materials: included
+* Skill Level: All/beginner
 * [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
 
-**Course Description**
+**A gateway skills class**
 
-We will be building a small "Sea Chest“ with angled sides. The finished chest will be about 12×12×24 with dovetailed corners. You will learn to make angled dovetails as you build this traditional form. We will only be using hand tools to create this chest. This would make a great gift! Bring what tools you have. We will have some to loan.
+### Course description
 
-**Tools**
+This is a great place to get your feet wet in woodworking and make a useful and attractive piece of furniture. The handcut joinery is strong and simple and easy to repeat at home. We will plane a taper, use a bow or coping saw, chisel a dado, and auger holes for wood pegs
 
-* Dovetail saw
-* Block Plane
-* #5 sized plane
-* Chisels
-* Mallet
-* Square
-* Marking Knife
-* Crosscut Saw
-* Marking gauge
-* Bevel
+* 
 
-  ## Paramount Center for the Arts
+## Paramount Center for the Arts
 
-  ### Sharpening and Using Handsaws:
+### Sharpening and Using Handsaws:
 
-  ### Sharpen a Handsaw, Build a Sawhorse
+### Sharpen a Handsaw, Build a Sawhorse
 
-  ![](/uploads/sawsharpening.JPG)
-  * Date: October 2nd and 3rd, 10:00 to 5:00
-  * Materials: included
-  * Skill Level: All
-  * [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
+![](/uploads/sawsharpening.JPG)
 
-  **A gateway skills class**
+* Date: October 2nd and 3rd, 10:00 to 5:00
+* Materials: included
+* Skill Level: All
+* [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
+
+**A gateway skills class**
+
 * [https://paramountarts.org/art-classes/](https://paramountarts.org/art-classes/ "https://paramountarts.org/art-classes/")
 
   ### Course description
@@ -198,7 +112,7 @@ Description: MWTCA tool meets are a great place to shop for tools and visit with
 
 ### SAVE THE DATE!
 
-September 2nd & 3rd 2022 
+September 2nd & 3rd 2022
 
 Don't miss it! Best woodworking event ever!
 
