@@ -110,6 +110,8 @@ Description: MWTCA tool meets are a great place to shop for tools and visit with
 
 ## HandWorks
 
+/uploads/handworks2020.jpg
+
 ### SAVE THE DATE!
 
 September 2nd & 3rd 2022
