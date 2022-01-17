@@ -4,14 +4,34 @@ title: Classes
 permalink: "/classes"
 
 ---
-# You may attend classes if you are fully vaccinated
+# You may attend classes if you are fully vaccinated.
+
+## MWTCA Tool Meet in Medina,MN
+
+##### Date: Sunday, February 13, 2022, 7:30 to 12:00 noon
+
+##### Where: The National Guard Armory, 3050 HWY 316 (Redwing Blvd.) Hastings Minnesota, 55033.
+
+##### Cost:  $10 entry fee. You must be a member. You can join at the door for $25 I believe. There are 3 meets a year.
+
+##### Description: MWTCA tool meets are a great place to shop for tools and visit with like minded people. I will be there demonstrating. Bring a few tools to sell, buy tools, view tool displays. Registration starts at 7:30, Trading starts at 8:30. **Social distancing and masks required.**
+
+##### I will be demonstrating.
+
+## Sack Back Windsor Chair 
+
+##### My friend Jim Van Hoven will be running a chair class at his shop in St. Croix Falls WI. He will be doing a two session program with the first session March 18>20 and the second April 1>3, 2022. The fee is $700.
+
+##### Contact Jim for more information and to sign up.
+
+##### jvhwindsor@aol.com
 
 ## Tool Making, Make a Moxon Double Screw Vise, a Marking Gauge, a Mallet, and a Marking Knife
 
 ![](/uploads/IMG_20161105_171553.jpg)
 
-* Date: October 30th and 31st, Saturday 9:00 – 5:00, Sunday, 10:00 - 4:30
-* Cost: $330
+* Date: March, 26th and 27th, Saturday 9:00 – 5:00, Sunday, 10:00 - 4:30
+* Cost: $350
 * Materials:Included
 * Skill Level: All
 * [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
@@ -26,6 +46,20 @@ We will be making a traditional double screw vise as shown in Randal Holme and M
 
 * Chisels
 * block plane
+
+## HandWorks
+
+/uploads/handworks2020.jpg
+
+### SAVE THE DATE!
+
+#### September 2nd & 3rd 2022
+
+#### Don't miss it! Best woodworking event ever!
+
+#### For the fourth time, join modern woodworking hand tool makers and fellow enthusiasts for a weekend immersion in all things handwork. Unplug from the world of machines, dust and noise while listening to the crisp sounds of the hand plane, chisel and saw in a restored timber-frame dairy barn in the traditional, historic German village of Amana.
+
+#### [https://handworks.co/](https://handworks.co/ "https://handworks.co/")
 
 ## Just Joints: Handcut Joinery
 
@@ -70,54 +104,3 @@ Whether for drawers or case work dovetails are actually pretty basic woodworking
 ### Course description
 
 This is a great place to get your feet wet in woodworking and make a useful and attractive piece of furniture. The handcut joinery is strong and simple and easy to repeat at home. We will plane a taper, use a bow or coping saw, chisel a dado, and auger holes for wood pegs
-
-* 
-
-## Paramount Center for the Arts
-
-### Sharpening and Using Handsaws:
-
-### Sharpen a Handsaw, Build a Sawhorse
-
-![](/uploads/sawsharpening.JPG)
-
-* Date: October 2nd and 3rd, 10:00 to 5:00
-* Materials: included
-* Skill Level: All
-* [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
-
-**A gateway skills class**
-
-* [https://paramountarts.org/art-classes/](https://paramountarts.org/art-classes/ "https://paramountarts.org/art-classes/")
-
-  ### Course description
-
-  Most people have never used a properly sharpened handsaw so they don't realize how well they work. Find out what you are missing! In the morning Mike will demonstrate how to bring an old saw back to life. We will go over what to look for in a handsaw and how to sharpen a saw. We will supply files and vises. Bring a saw to sharpen, between 10 and 6 points per inch and a saw vise if you have one. If you don't have a saw that you want to practice on Mike has some practice saws. He also has a few saws for sale. On day two we will use our saws to make a sawbench/sawhorse.
-
-  **Tools**
-
-  Bring a 10 to 6 point saw that needs to be sharpened and a saw vise if you have one, an 8 point saw is best. If you don't have a saw you want to practice on Mike has some practice saws. You can bring extra saws for evaluation. Many students bring an 8 point crosscut saw and a 5 or 5 1/2 point ripsaw and sharpen them both!
-
-## MWTCA Tool Meet in Hastings,MN
-
-Date: Saturday, October 23, 2021, 7:30 to 12:00 noon
-
-Where: The National Guard Armory, 3050 HWY 316 (Redwing Blvd.) Hastings Minnesota, 55033.
-
-Cost:  $10 entry fee. You must be a member. You can join at the door for $25 I believe. There are 3 meets a year.
-
-Description: MWTCA tool meets are a great place to shop for tools and visit with like minded people. I will be there demonstrating. Bring a few tools to sell, buy tools, view tool displays. Registration starts at 7:30, Trading starts at 8:30. **Social distancing and masks required.**
-
-## HandWorks
-
-/uploads/handworks2020.jpg
-
-### SAVE THE DATE!
-
-September 2nd & 3rd 2022
-
-Don't miss it! Best woodworking event ever!
-
-For the fourth time, join modern woodworking hand tool makers and fellow enthusiasts for a weekend immersion in all things handwork. Unplug from the world of machines, dust and noise while listening to the crisp sounds of the hand plane, chisel and saw in a restored timber-frame dairy barn in the traditional, historic German village of Amana.
-
-https://handworks.co/
