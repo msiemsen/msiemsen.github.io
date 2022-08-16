@@ -1,7 +1,6 @@
 ---
 layout: page
 title: About
-permalink: about
 
 ---
 ![](/uploads/msw-frontoptions1.jpg)
