@@ -6,7 +6,7 @@ permalink: "/classes"
 ---
 # You may attend classes if you are fully vaccinated.
 
- Sign up now to ensure yourself a place using the email links in the class postings. There is no deposit, payment is first day of class. Please notify me A.S.A.P if you need to cancel. 
+Sign up now to ensure yourself a place using the email links in the class postings. There is no deposit, payment is first day of class. Please notify me A.S.A.P if you need to cancel.
 
 ## Minnesota Woodworkers Guild - Woodworkers EXPO
 
