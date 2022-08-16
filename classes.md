@@ -191,6 +191,6 @@ We will be building a small "Sea Chest“ with angled sides. The finished chest 
 * Cost:  $10 entry fee. Coffee and doughnuts included! You must be a member. You can join at the door for $25 I believe. There are 3 meets a year.
 
 **Description**
-MWTCA tool meets are a great place to shop for tools and visit with like minded people. I will be there demonstrating. Bring a few tools to sell, buy tools, view tool displays. Registration starts at 7:30, Trading starts at 8:30. **Social distancing and masks required.**
+MWTCA tool meets are a great place to shop for tools and visit with like minded people. Bring a few tools to sell, buy tools, view tool displays. Registration starts at 7:30, Trading starts at 8:30. **Social distancing and masks required.**
 
 I will be demonstrating.
