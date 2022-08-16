@@ -159,7 +159,7 @@ Bring a 10 to 6 point saw that needs to be sharpened and a saw vise if you have 
 
 ## Build a Small Sea Chest
 
-![](/uploads/Small sea chest.jpg.jpg)
+![](/uploads/20170427_161510.jpg)
 
 * Date: December 10th and 11th - 9:00 – 5:00
 * Cost: $380
