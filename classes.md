@@ -88,7 +88,7 @@ Date: October 15th, 16th and 17th - 9:00 to 5:00
 
 ## Sharpening, Tuning and Using Chisels, Planes and Scrapers
 
-![/uploads/planesandchisels.JPG](https://app.forestry.io/sites/agzbuzgep-xvcg/body-media//uploads/planesandchisels.JPG)
+![](/uploads/img_20170729_150943.jpg)
 
 * Date: October 29th and 30th - 9:00 - 5:00,
 * Cost: $370
