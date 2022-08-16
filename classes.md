@@ -8,7 +8,7 @@ permalink: "/classes"
 
 Sign up now to ensure yourself a place using the email links in the class postings. There is no deposit, payment is first day of class. Please notify me A.S.A.P if you need to cancel.
 
-## Minnesota Woodworkers Guild - Woodworkers EXPO
+## Minnesota Woodworkers Guild Woodworkers EXPO
 
 **WHEN:** Saturday, September 24, 2022. 9 am - 3 pm.
 
