@@ -186,12 +186,11 @@ We will be building a small "Sea Chest“ with angled sides. The finished chest 
 
 ## MWTCA Tool Meet in Medina,MN
 
-##### Date: Sunday, February 12, 2023, 7:30 to 12:00 noon
+* Date: Sunday, February 12, 2023, 7:30 to 12:00 noon
+* Where: The Medina Ballroom, 500 Hwy 55, Medina, MN. Just west of 494 on Hwy 55
+* Cost:  $10 entry fee. Coffee and doughnuts included! You must be a member. You can join at the door for $25 I believe. There are 3 meets a year.
 
-##### Where: The Medina Ballroom, 500 Hwy 55, Medina, MN. Just west of 494 on Hwy 55
+**Description**
+MWTCA tool meets are a great place to shop for tools and visit with like minded people. I will be there demonstrating. Bring a few tools to sell, buy tools, view tool displays. Registration starts at 7:30, Trading starts at 8:30. **Social distancing and masks required.**
 
-##### Cost:  $10 entry fee. Coffee and doughnuts included! You must be a member. You can join at the door for $25 I believe. There are 3 meets a year.
-
-##### Description: MWTCA tool meets are a great place to shop for tools and visit with like minded people. I will be there demonstrating. Bring a few tools to sell, buy tools, view tool displays. Registration starts at 7:30, Trading starts at 8:30. **Social distancing and masks required.**
-
-##### I will be demonstrating.
+I will be demonstrating.
