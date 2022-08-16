@@ -40,8 +40,6 @@ Clubs, Maker Spaces, Nonprofits, Schools
 
 This is a great place to get your feet wet in woodworking and make a useful and attractive piece of furniture. The handcut joinery is strong and simple and easy to repeat at home. We will plane a taper, use a bow or coping saw, chisel a dado, and auger holes for wood pegs to create a bench without glue or metal fasteners.
 
-##### 
-
 ## Tool Making, Make a Moxon Double Screw Vise, a Marking Gauge, a Mallet, and a Marking Knife
 
 ![](/uploads/IMG_20161105_171553.jpg)
