@@ -2,7 +2,6 @@
 layout: Page
 title: About
 permalink: "/"
-published: false
 
 ---
 ![](/uploads/msw-frontoptions1.jpg)
