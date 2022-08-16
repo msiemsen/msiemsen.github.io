@@ -6,6 +6,8 @@ permalink: "/classes"
 ---
 # You may attend classes if you are fully vaccinated.
 
+ Sign up now to ensure yourself a place using the email links in the class postings. There is no deposit, payment is first day of class. Please notify me A.S.A.P if you need to cancel. 
+
 ## Minnesota Woodworkers Guild - Woodworkers EXPO
 
 **WHEN:** Saturday, September 24, 2022. 9 am - 3 pm.
@@ -92,7 +94,7 @@ Date: October 15th, 16th and 17th - 9:00 to 5:00
 * Cost: $370
 * Materials: Included
 * Skill Level: All
-* [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
+* [mike@schoolofwood.com](mailto:mike@schoolofwood.com "email")
 
 **A gateway skills class**
 
