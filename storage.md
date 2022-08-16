@@ -213,3 +213,11 @@ We will be building a small "Sea Chest“ with angled sides. The finished chest 
 * Crosscut Saw
 * Marking gauge
 * Bevel
+
+## Sack Back Windsor Chair
+
+##### My friend Jim Van Hoven will be running a chair class at his shop in St. Croix Falls WI. He will be doing a two session program with the first session March 18>20 and the second April 1>3, 2022. The fee is $700.
+
+##### Contact Jim for more information and to sign up.
+
+##### jvhwindsor@aol.com
