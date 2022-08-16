@@ -18,4 +18,5 @@ fields:
   hidden: false
   default: ''
 pages:
+- about-1.md
 - storage.md
