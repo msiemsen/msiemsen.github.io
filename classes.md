@@ -137,7 +137,7 @@ Whether for drawers or case work dovetails are actually pretty basic woodworking
 
 ## Sharpening and Using Handsaws: Sharpen a Handsaw (and an auger bit). Build a sawbench.
 
-![/uploads/sawsharpening.JPG](https://app.forestry.io/sites/agzbuzgep-xvcg/body-media//uploads/sawsharpening.JPG)
+/uploads/dsc_0008.JPG
 
 * Date:  November 26th and 27th - 9:00 to 5:00
 * Cost: $385
