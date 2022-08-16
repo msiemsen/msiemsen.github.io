@@ -110,7 +110,7 @@ On day two we will cover chisel use as well as what it takes to make a plane wor
 
 ## Just Joints: Handcut Joinery
 
-![](/uploads/dovetailing.jpg)
+![](/uploads/img_20170813_161708.jpg)
 
 * Date: November 12th and 13th,  9:00 – 5:00
 * Cost: $370
@@ -137,7 +137,7 @@ Whether for drawers or case work dovetails are actually pretty basic woodworking
 
 ## Sharpening and Using Handsaws: Sharpen a Handsaw (and an auger bit). Build a sawbench.
 
-/uploads/dsc_0008.JPG
+![](/uploads/dsc_0008.JPG)
 
 * Date:  November 26th and 27th - 9:00 to 5:00
 * Cost: $385
@@ -155,7 +155,7 @@ Day two will be spent sharpening our sawing skills while building a sawbench, a 
 
 **Tools**
 
-Bring a 10 to 6 point saw that needs to be sharpened and a saw vise if you have one, an 8 point saw is best. If you don't have a saw you want to practice on Mike has some practice saws. You can bring extra saws for evaluation. Many students bring an 8 point crosscut saw and a 5 or 5 1/2 point ripsaw and sharpen them both!
+Bring a 10 to 6 point saw that needs to be sharpened and a saw vise if you have one, an 8 point saw is best. If you don't have a saw you want to practice on Mike has some practice saws. You can bring extra saws for evaluation. Many students bring an 8 point crosscut saw and a 5 or 5 1/2 point ripsaw and sharpen them both! Some find that magnifiers help.
 
 ## Build a Small Sea Chest
 
