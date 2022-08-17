@@ -76,7 +76,7 @@ Date: October 15th, 16th and 17th - 9:00 to 5:00
 
   ### Course Description
 
-  We will be building the iconic Nicholson workbench in a 6 foot length. If you want a longer bench let me know when you sign up. There will be a materials up-charge for longer benches (cost of materials only). In order to get done in 2 days we will primarily be using power tools. We will go over flattening the bench top but you will do that at home after your bench settles in. If you want to see one of these benches in action watch my youtube video. [https://www.youtube.com/watch?v=yvhn-PAfEW4](https://www.youtube.com/watch?v=yvhn-PAfEW4 "https://www.youtube.com/watch?v=yvhn-PAfEW4")
+  We will be building the iconic Nicholson workbench in a 6 foot length. If you want a longer bench let me know when you sign up. There will be a materials up-charge for longer benches (cost of materials only). In order to get done in 3 days we will primarily be using power tools. We will go over flattening the bench top but you will do that at home after your bench settles in. If you want to see one of these benches in action watch my youtube video. [https://www.youtube.com/watch?v=yvhn-PAfEW4](https://www.youtube.com/watch?v=yvhn-PAfEW4 "https://www.youtube.com/watch?v=yvhn-PAfEW4")
 
   **Please sign up early so I can get the materials in!**
 
