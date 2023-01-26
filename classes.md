@@ -8,29 +8,23 @@ permalink: "/classes"
 
 Sign up now to ensure yourself a place using the email links in the class postings. There is no deposit, payment is first day of class. Please notify me A.S.A.P if you need to cancel.
 
-## Minnesota Woodworkers Guild Woodworkers EXPO
+Sign up for my newsletter at the bottom of the page!!
 
-**WHEN:** Saturday, September 24, 2022. 9 am - 3 pm.
+## MWTCA Tool Meet in Medina,MN
 
-**LOCATION:** Bloomington Armory, 3300 West 98th Street, Bloomington.
+* Date: Sunday, February 12, 2023, 7:30 to 12:00 noon
+* Where: The Medina Ballroom, 500 Hwy 55, Medina, MN. Just west of 494 on Hwy 55
+* Cost:  $10 entry fee. Coffee and doughnuts included! You must be a member. You can join at the door for $25 I believe. There are 3 meets a year.
 
-**TOOL SWAP:**  
-We’ll have dedicated outdoor space setup to buy, sell or trade your no longer needed tools and equipment! This is a great chance to clean out your garage or workshop just in time for the changing seasons! Bring and sell your own woodworking tools and supplies. No registration – just show up!  
-![](https://www.mnwwg.org/images/toolswap_swapper.jpg)  
-**EXPO:**  
-We’ve invited some of the best vendors and manufacturers in to show you their latest and greatest. Everything from tools to materials and more! Among those participating are:  
-Woodworking Tool Vendors & Stores  
-Clubs, Maker Spaces, Nonprofits, Schools
+**Description** MWTCA tool meets are a great place to shop for tools and visit with like minded people. Bring a few tools to sell, buy tools, view tool displays. Registration starts at 7:30, Trading starts at 8:30. **Social distancing and masks required.**
 
-**SEMINARS:** Our schedule includes workshops from nationally known experts – as well as hands on demos from some of the top manufacturers in the industry!
-
-#### I'll be there demonstrating and visiting!
+I will be demonstrating.
 
 ## A Place To Sit: Make a Bench
 
 ![](/uploads/DSC_0014.JPG)
 
-* Date:  September 25th, 9:00 – 5:00
+* Date:  February 26th,  9:00 – 5:00
 * Cost: $190
 * Materials: included
 * Skill Level: All/beginner
@@ -46,7 +40,7 @@ This is a great place to get your feet wet in woodworking and make a useful and 
 
 ![](/uploads/IMG_20161105_171553.jpg)
 
-* Date: October 1st and 2nd - 9:00 – 5:00
+* Date: March 4th and 5th,  9:00 – 5:00
 * Cost: $400
 * Materials:Included
 * Skill Level: All
@@ -67,9 +61,9 @@ We will be making a traditional double screw vise as shown in Randal Holme and M
 
 ![](/uploads/IMG_20170611_165557.jpg)
 
-Date: October 15th, 16th and 17th - 9:00 to 5:00
+Date: March 11th, 12th and 13th,  9:00 to 5:00
 
-* Cost: $750
+* Cost: $850
 * Materials: Included
 * Skill Level: All
 * [mike@schoolofwood.com](mailto:mike@schoolofwood.com)
@@ -90,7 +84,7 @@ Date: October 15th, 16th and 17th - 9:00 to 5:00
 
 ![](/uploads/img_20170729_150943.jpg)
 
-* Date: October 29th and 30th - 9:00 - 5:00,
+* Date: April 15th and 16th,  9:00 - 5:00,
 * Cost: $370
 * Materials: Included
 * Skill Level: All
@@ -112,7 +106,7 @@ On day two we will cover chisel use as well as what it takes to make a plane wor
 
 ![](/uploads/img_20170813_161708.jpg)
 
-* Date: November 12th and 13th,  9:00 – 5:00
+* Date: April 22nd and 23rd,  9:00 – 5:00
 * Cost: $370
 * Materials: Included
 * Skill Level: All
@@ -135,11 +129,19 @@ Whether for drawers or case work dovetails are actually pretty basic woodworking
 * 6" Square
 * Smooth Plane
 
-## Sharpening and Using Handsaws: Sharpen a Handsaw (and an auger bit). Build a sawbench.
+## Minnesota Woodworkers Guild "Northern Woods" Show
+
+April 27th through the 30th, Eden Prairie Center
+
+[https://mnwwg.org/northern-woods-exhibition/](https://mnwwg.org/northern-woods-exhibition/ "https://mnwwg.org/northern-woods-exhibition/")
+
+The Northern Woods Exhibition is an annual woodworking show and competition sponsored by the Minnesota Woodworkers’ Guild and hosted by the Eden Prairie Center. The show provides an opportunity for woodworkers to display and discuss their craft, and for the community to view the best in high quality woodworking design and construction. The pieces on display are works of art in addition to being functional furniture. I have been asked to be a judge this year.
+
+## Sharpening and Using Handsaws: Sharpen a Handsaw (and an auger bit). Build a Sawbench.
 
 ![](/uploads/dsc_0008.JPG)
 
-* Date:  November 26th and 27th - 9:00 to 5:00
+* Date:  May 6th and 7th,  9:00 to 5:00
 * Cost: $385
 * Materials: included
 * Skill Level: All
@@ -157,11 +159,21 @@ Day two will be spent sharpening our sawing skills while building a sawbench, a 
 
 Bring a 10 to 6 point saw that needs to be sharpened and a saw vise if you have one, an 8 point saw is best. If you don't have a saw you want to practice on Mike has some practice saws. You can bring extra saws for evaluation. Many students bring an 8 point crosscut saw and a 5 or 5 1/2 point ripsaw and sharpen them both! Some find that magnifiers help.
 
+## MWTCA Tool Meet in Hastings,MN
+
+* Date: Saturday, May 13th, 2023, 7:30 to 12:00 noon
+* Where: National Guard Armory, Hastings, MN,
+* Cost:  $10 entry fee. Coffee and doughnuts included! You must be a member. You can join at the door for $25 I believe. There are 3 meets a year.
+
+**Description** MWTCA tool meets are a great place to shop for tools and visit with like minded people. Bring a few tools to sell, buy tools, view tool displays. Registration starts at 7:30, Trading starts at 8:30. **Social distancing and masks required.**
+
+I will be demonstrating.
+
 ## Build a Small Sea Chest
 
 ![](/uploads/20170427_161510.jpg)
 
-* Date: December 10th and 11th - 9:00 – 5:00
+* Date: May 20th and 21st,  9:00 – 5:00
 * Cost: $380
 * Materials: Included
 * Skill Level: beginner/intermediate
@@ -184,23 +196,30 @@ We will be building a small "Sea Chest“ with angled sides. The finished chest 
 * Marking gauge
 * Bevel
 
-## MWTCA Tool Meet in Hastings,MN
+## Minnesota Woodworkers Guild Woodworkers EXPO
 
-* Date: Saturday, October 22, 2022, 7:30 to 12:00 noon
-* Where: Hastings Armory, 3050 MN-316, Hastings, MN 55033
-* Cost:  $10 entry fee. Coffee and doughnuts included! You must be a member. You can join at the door for $25 I believe. There are 3 meets a year.
+**WHEN:** Saturday, October 14th, 2023, 9 am - 3 pm.
 
-**Description** MWTCA tool meets are a great place to shop for tools and visit with like minded people. Bring a few tools to sell, buy tools, view tool displays. Registration starts at 7:30, Trading starts at 8:30. **Social distancing and masks required.**
+**LOCATION:** The 2023 event will be on Saturday, October 14, from 9 am till 3 pm. The Expo will be held at [Canterbury Downs](https://www.google.com/maps/place/Canterbury+Park+Expo+Building,+100+Canterbury+Rd,+Shakopee,+MN+55379/@44.7918222,-93.4853146,17z/data=!3m1!4b1!4m5!3m4!1s0x87f6175c3543ddf5:0x891ce4d393c12c2c!8m2!3d44.7918184!4d-93.4827397), in Shakopee, MN.
 
-I will be demonstrating.
+**TOOL SWAP:**  
+We’ll have dedicated outdoor space setup to buy, sell or trade your no longer needed tools and equipment! This is a great chance to clean out your garage or workshop just in time for the changing seasons! Bring and sell your own woodworking tools and supplies. No registration – just show up!  
+![](https://www.mnwwg.org/images/toolswap_swapper.jpg)  
+**EXPO:**  
+We’ve invited some of the best vendors and manufacturers in to show you their latest and greatest. Everything from tools to materials and more! Among those participating are:  
+Woodworking Tool Vendors & Stores  
+Clubs, Maker Spaces, Nonprofits, Schools
 
-## MWTCA Tool Meet in Medina,MN
+**SEMINARS:** Our schedule includes workshops from nationally known experts – as well as hands on demos from some of the top manufacturers in the industry!
 
-* Date: Sunday, February 12, 2023, 7:30 to 12:00 noon
-* Where: The Medina Ballroom, 500 Hwy 55, Medina, MN. Just west of 494 on Hwy 55
-* Cost:  $10 entry fee. Coffee and doughnuts included! You must be a member. You can join at the door for $25 I believe. There are 3 meets a year.
+#### I'll be there demonstrating and visiting!
 
-**Description**
-MWTCA tool meets are a great place to shop for tools and visit with like minded people. Bring a few tools to sell, buy tools, view tool displays. Registration starts at 7:30, Trading starts at 8:30. **Social distancing and masks required.**
+[https://mnwwg.org/woodworkers-expo-welcome-page#schedule-exhibitors-supporters](https://mnwwg.org/woodworkers-expo-welcome-page#schedule-exhibitors-supporters "https://mnwwg.org/woodworkers-expo-welcome-page#schedule-exhibitors-supporters")
 
-I will be demonstrating.
+## Handworks 2023!!
+
+September 1st and 2nd, Amana, Iowa
+
+I'll be there!
+
+[https://handworks.co/](https://handworks.co/ "https://handworks.co/")
